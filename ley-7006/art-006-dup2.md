@@ -1,0 +1,1 @@
+ARTÍCULO 6.- El Secretario de los Mayores será el Presidente y representante natural del Consejo Provincial de los Mayores el cual estará formado por: 1 (un) Presidente; 1 (un) Vicepresidente; 1 (un) Secretario; 1 (un) Subsecretario/a de Actas; 1 (un) Secretario/a de Prensa y Difusión; Y los Vocales.

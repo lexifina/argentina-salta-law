@@ -1,0 +1,1 @@
+ARTÍCULO 5.- El Consejo de los Mayores estará conformado por miembros del Estado Provincial y de la Sociedad Civil dedicada a esta temática. Las organizaciones de mayores para participar deberán cumplir con los siguientes requisitos: a) personería jurídica vigente; b) memoria y balance aprobado y c) listado de socios con domicilio y número de identidad.
