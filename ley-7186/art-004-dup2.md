@@ -1,0 +1,1 @@
+ARTÍCULO 4º — Serán beneficiarios las personas físicas o jurídicas y las sucesiones indivisas que realicen actividades objeto de la presente ley y que cumplan con los requisitos que establezca su reglamentación.

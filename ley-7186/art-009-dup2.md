@@ -1,0 +1,1 @@
+ARTÍCULO 9º — Créase en el ámbito de la Secretaría de Agricultura, Ganadería, Pesca y Alimentación la Comisión Asesora Técnica del Régimen para la Recuperación de la Ganadería Ovina (CAT).
