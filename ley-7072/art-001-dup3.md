@@ -1,0 +1,1 @@
+Artículo 1º - Constitúyase El Consejo de Dirección del Instituto de Música y Danza de la Provincia conforme lo previsto en el Artículo 5º de la Ley Nº 7072 para asumir su conducción y dar cumplimiento a las funciones establecidas en el Artículo 7º del mismo cuerpo legal.

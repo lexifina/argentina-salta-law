@@ -1,0 +1,1 @@
+Art. 5º - Designados los miembros del Consejo Asesor Honorario creado por el Artículo 9º de la citada Ley, según el procedimiento y en las condiciones allí previstas, estos deberán ser convocados en la primera reunión del Consejo de Dirección para conocer y efectuar aportes respecto de la planificación anual, como así también cuando del Consejo lo considere necesario.
