@@ -1,0 +1,1 @@
+ART. 5.- Los locales donde se elabore, manipule, reserve, exhiba o expenda sal para uso alimentario humano o animal, estarán sujetos a las inspecciones de los funcionarios sanitarios o, en su caso, de los funcionarios de la Secretaría de Estado de Agricultura y Ganadería de la Nación, estando facultados para requerir el auxilio de la fuerza pública.

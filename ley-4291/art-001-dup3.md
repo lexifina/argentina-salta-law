@@ -1,0 +1,3 @@
+ART. 1.- La obligación impuesta en el Art. 1 de la Ley 17.259, comenzará a regir a partir del 1 de enero de 1968 en las siguientes provincias: Catamarca, Chaco, Formosa, Jujuy, La Pampa, La Rioja, Mendoza, Misiones, Neuquén, San Juan, San Luis, Salta, Tucumán y Territorio Nacional de la Tierra del Fuego, Antártida e Islas del Atlántico Sur.
+A partir del 1 de enero de 1969 comenzará a regir en el resto del territorio nacional. La Secretaría de Estado de Salud Pública de la Nación queda facultada para exceptuar provincias o Capital Federal, donde luego de estudios adecuados, se demostrare la inexistencia de endemia.
+Se considerará que el bocio es endémico, cuando más del 10 % de una muestra de la población en edad escolar examinada lo padezca.

@@ -1,0 +1,1 @@
+ARTÍCULO 1.- En todo el territorio nacional, la sal para uso alimentario humano o para uso alimentario animal, deberá ser enriquecida con yodo en la proporción, forma y dentro de los plazos que determine la reglamentación respectiva a dictarse por el Poder Ejecutivo Nacional.

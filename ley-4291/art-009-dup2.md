@@ -1,0 +1,1 @@
+ART. 9.- Quedan exceptuadas de la prohibición fijada en el Art. 8, la elaboración, tenencia o comercialización de sal no yodada con destino al uso alimentario humano o animal en las zonas calificadas como no endémicas.

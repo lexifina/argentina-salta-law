@@ -1,0 +1,1 @@
+ART. 6.- La evaluación de las medidas preventivas establecidas por la ley, se efectuará por medio de encuestas periódicas, en períodos no mayores de 5 años, que practicará la Secretaría de Estado de Salud Pública de la Nación, con la colaboración de las autoridades sanitarias locales.
