@@ -1,0 +1,1 @@
+Art. 3º.- El Gobernador de la Provincia determinará si las alternativas, procedimientos y modalidades de la privatización de la gestión del servicio público referido en el capítulo anterior, previstas en los artículos 37 y 39 de la Ley 6.583, serán ejecutadas por éste o por la autoridad de aplicación de esta ley que él designe.
