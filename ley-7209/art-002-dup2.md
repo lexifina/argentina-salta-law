@@ -1,0 +1,1 @@
+Art. 2º.- Los recursos tributarios asignados a regímenes especiales de coparticipación se distribuirán conforme a las normas que rigen a la fecha y constituirán ingresos de libre disponibilidad para las jurisdicciones partícipes y no se computarán a los fines de las obligaciones a que se refiere el inciso g) del artículo 9º de la Ley Nº 23.548.
