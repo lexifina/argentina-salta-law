@@ -1,0 +1,1 @@
+Art. 9º - (Art. 9º y 10º de la Ley) Cuando el artesano resulte beneficiario de un préstamo proveniente del Fondo de Fomento Artesanal, sea en dinero o materia prima, debe devolver lo que hubiera recibido, en tiempo y forma, en los términos de lo que la Autoridad de Aplicación determine oportunamente.
