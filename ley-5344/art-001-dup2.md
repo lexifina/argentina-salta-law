@@ -1,0 +1,1 @@
+Artículo 1º.- Las partes posibilitarán, mediante acciones de reciprocidad, el desarrollo progresivo de un plan de promoción cultural y educativo, a cuyo fin se comprometen a acordarse facilidades para difundir, en sus respectivas jurisdicciones, las manifestaciones que se refieren a aquellos aspectos.
