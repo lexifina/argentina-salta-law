@@ -1,0 +1,10 @@
+LEY Nº 1673 (Original 395) (1)
+Fuente: Recopilación General de Leyes, compilación ordenada de las leyes de la Provincia de Salta
+y sus decretos reglamentarios (Documentos compilados y anotados por el Dr. RAÚL FIORE
+MOULÉS, complementarios de la colección de Gavino Ojeda)
+Ley de Catastro y Contribución Territorial
+Salta, Diciembre 30 de 1936. Por cuanto:
+El Senado y la Cámara de Diputados de la Provincia de Salta, sancionan con fuerza de
+LEY
+CAPITULO I
+Del Catastro
