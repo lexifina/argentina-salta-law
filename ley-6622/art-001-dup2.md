@@ -1,0 +1,1 @@
+Artículo Primero: Las personas detenidas a disposición de los señores Jueces Federales serán recibidas, alojadas y tratadas de acuerdo con esa situación jurídica por el Servicio Penitenciario de la provincia de Salta.
