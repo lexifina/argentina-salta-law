@@ -1,0 +1,1 @@
+Artículo 52: El término “amplias”, sugiriendo además el agregado al final de su texto de la siguiente frase: “debiéndose efectuar con los debidos recaudos legales y respetando los derechos consagrados por la legislación vigente”.
