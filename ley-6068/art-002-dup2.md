@@ -1,0 +1,1 @@
+Artículo 2º.- Agentes Municipales: Son agentes municipales las personas que se desempeñen laboralmente en las Municipalidades del interior de la provincia de Salta, perciban una remuneración mensual determinada en el presupuesto general y hayan sido designados por Resolución Municipal de acuerdo con las condiciones establecidas en el Escalafón y este Estatuto.
