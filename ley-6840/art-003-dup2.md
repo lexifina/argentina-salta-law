@@ -1,0 +1,1 @@
+Art. 3º.- A los fines previstos en esta ley el Gobernador de la Provincia puede disponer la afectación de empleados públicos de la Provincia, la utilización de bienes del dominio de ésta y la atención de gastos por el Tesoro Provincial.

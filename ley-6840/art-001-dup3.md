@@ -1,0 +1,1 @@
+Artículo 1º.- Los intendentes municipales en forma personal y sin relación alguna con el ordenamiento municipal, podrán actuar como agentes del Gobernador de la Provincia a los fines de la ejecución, en el término de sus respectivos municipios, de las leyes y demás normas integrantes del ordenamiento provincial y de la ejecución de las políticas del Gobierno Provincial.
