@@ -1,0 +1,3 @@
+Artículo 1° - Créase la Comisión Nacional de Museos y de Monumentos y Lugares Históricos, dependiente del Ministerio de Justicia e Instrucción Pública, integrada por un presidente y diez
+vocales, que ejercerán sus funciones con carácter honorario y serán designados por períodos de seis años, pudiendo ser reelectos.
+La comisión tendrá la superintendencia inmediata sobre los museos, monumentos y lugares históricos nacionales y en concurrencia con las respectivas autoridades de las instituciones que se acojan a la presente ley, cuando se trate de museos, monumentos y lugares históricos provinciales o municipales.

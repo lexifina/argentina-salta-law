@@ -1,0 +1,1 @@
+Art. 2° - Los bienes históricos y artísticos, lugares, monumentos, inmuebles propiedad de la Nación, de las provincias, de las municipalidades o instituciones públicas, quedan sometidos por esta ley a la custodia y conservación del gobierno federal, y en su caso, en concurrencia con las autoridades respectivas.
