@@ -1,0 +1,1 @@
+Artículo 1º - El Sistema de Seguridad Interior de la provincia de Salta, dentro del marco de la Ley de Seguridad Interior, está a cargo del Consejo Provincial de Complementación para la Seguridad Interior (CPCSI).

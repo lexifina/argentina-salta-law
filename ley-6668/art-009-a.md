@@ -1,0 +1,1 @@
+Art. 9º - A los efectos de coordinar el accionar en materia de seguridad interior, el CPCSI se reunirá una vez al mes, sin perjuicio de eventuales reuniones a llevarse a cabo cuando las circunstancias y la situación lo exijan o cuando lo considere el titular del mismo revistiendo sus sesiones el carácter de "Secretas".

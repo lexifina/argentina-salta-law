@@ -1,0 +1,1 @@
+ARTICULO 4º — La seguridad interior tiene como ámbito espacial el territorio de la República Argentina, sus aguas jurisdiccionales y su espacio aéreo.

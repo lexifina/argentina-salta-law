@@ -1,0 +1,1 @@
+ARTICULO 1º — La presente ley establece las bases jurídicas, orgánicas y funcionales del sistema de planificación, coordinación, control y apoyo del esfuerzo nacional de policía tendiente a garantizar la seguridad interior.

@@ -1,0 +1,1 @@
+ARTICULO 6º — El sistema de seguridad interior tiene como finalidad determinar las políticas de seguridad así como planificar, coordinar, dirigir, controlar y apoyar el esfuerzo nacional de policía dirigido al cumplimiento de esas políticas.

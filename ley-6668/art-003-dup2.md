@@ -1,0 +1,1 @@
+ARTICULO 3º — La seguridad interior implica el empleo de los elementos humanos y materiales de todas las fuerzas policiales y de seguridad de la Nación a fin de alcanzar los objetivos del artículo 2º.
