@@ -1,0 +1,1 @@
+Art. 3º.- Los integrantes de los consorcios previstos en esta ley no reciben retribución por la actividad que desempeñan, sin perjuicio, de la compensación implícita en la consecución del interés que los vincula, la que se logra a través de la utilización de los mecanismos previstos en esta ley.
