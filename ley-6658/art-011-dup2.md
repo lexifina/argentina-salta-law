@@ -1,0 +1,1 @@
+ARTICULO 11.- El órgano de aplicación determinará las sanciones a que dé lugar la incuria o el mal comportamiento de los deportistas, adiestradores y/o técnicos durante la preparación o mientras dure la competencia.

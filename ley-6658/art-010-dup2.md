@@ -1,0 +1,1 @@
+ARTICULO 10.- El Ministerio de Cultura y Educación y/o las universidades dispondrán lo necesario para que a quienes fueren designados integrantes de las delegaciones a que se refieren los artículos 1 y 2 no les sean computadas las inasistencias a los fines de modificar su condición de alumnos regulares.

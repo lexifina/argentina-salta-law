@@ -1,0 +1,1 @@
+ARTICULO 9° - A fin de equilibrar el potencial de las distintas provincias adheridas, el deporte se organizara por regiones. A tal efecto se integrara a las mismas teniendo como base la población, el nivel deportivo, la infraestructura de los distintos Estados provinciales y las vías de comunicación entre ellos, conforme lo establezca la reglamentación.

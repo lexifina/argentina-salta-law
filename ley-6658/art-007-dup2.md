@@ -1,0 +1,1 @@
+ARTICULO 7.- El empleador, ya se trate de personas de existencia visible o jurídica, necesaria o posible o de simples asociaciones civiles, comerciales o religiosas, está obligado a otorgar la "licencia especial deportiva" por el término que fije el certificado que al efecto expedirá el órgano de aplicación de la ley de la materia.

@@ -1,0 +1,1 @@
+ARTICULO 8.- Cuando se trate de empleados del sector privado el sueldo del licenciado y los aportes previsionales correspondientes serán entregados al empleador por el órgano de aplicación y con recursos provenientes del "Fondo Nacional del Deporte".
