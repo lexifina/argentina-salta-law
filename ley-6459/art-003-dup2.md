@@ -1,0 +1,1 @@
+Art. 3º.- La Junta es una institución de derecho público, no estatal, sin fines de lucro, con capacidad para actuar pública y privadamente. Queda sometida al derecho privado en todo lo que se refiere a los derechos y obligaciones de ese carácter que origine su actividad comercial.

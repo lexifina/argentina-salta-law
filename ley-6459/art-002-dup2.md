@@ -1,0 +1,2 @@
+Art. 2º.- La Junta se regirá por las normas del presente y de su reglamentación, que le servirán de estatutos, y los artículos 35, 39 y demás complementarios y concordantes del Código Civil.
+Le serán aplicables, supletoriamente, las normas que rigen las sociedades de economía mixta respecto de las facultades de que el Estado provincial goza en la entidad. Tendrá por ley supletoria y en cuanto se concilien con la naturaleza y fines de la Junta, y en relación con las materias respectivas, las disposiciones del Código de Comercio y las Leyes Nº 19.550, 20.337 y 22.903.

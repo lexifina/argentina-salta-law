@@ -1,0 +1,2 @@
+Artículo 1º.- Con la denominación de Junta Provincial del Pimentón y Especias, constitúyese entre los productores de pimientos para pimentón y de materias primas de otras especias aromáticas de la Provincia, las cooperativas por ellos constituidas o a constituirse y el Estado provincial de Salta, la institución de defensa de la profesión y economía agroindustrial pimentonera y especiera de la Provincia, que tendrá los fines, estructuras y funciones que se establecen en el presente cuerpo normativo.
+Girará bajo la sigla: J.P.JI.
