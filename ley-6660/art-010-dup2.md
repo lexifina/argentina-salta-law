@@ -1,0 +1,1 @@
+Arts. 10 y 11 - A los efectos del cumplimiento de la norma, deberá respetarse las disposiciones de la Convención Americana sobre Derechos Humanos, aprobada por Ley Nacional Nº 23.054, como así también las garantías y reservas introducidas por la Ley Nacional Nº 23.798.

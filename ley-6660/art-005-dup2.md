@@ -1,0 +1,1 @@
+Art. 5º- La formulación de planes educativos se hará en la forma conjunta entre los Ministerios de Salud Pública y de Educación teniendo en cuenta que la prevención y control de las Enfermedades de Transmisión Sexual y del S.I.D.A. deberán incorporarse como tema en los programas de enseñanza de los niveles primarios, secundarios y terciarios, tanto público como privados.
