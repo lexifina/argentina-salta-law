@@ -1,0 +1,1 @@
+Art. 3°.- Los trámites deberán proseguirse hasta completarlos en el término de un año a contar del vencimiento del plazo establecido en el art. 1°. Vencido dicho término, el empleador podrá disponer el cese en las funciones aunque el interesado no hubiera obtenido aun el beneficio o su liquidación.

@@ -1,0 +1,1 @@
+Art. 1º.-Mientras dure la tramitación de su jubilación, los docentes de todas las ramas de la enseñanza, podrán continuar desempeñando sus tareas, con percepción de los haberes correspondientes, cesando en sus funciones el último día del mes en el que la Caja Nacional de Previsión para el Personal del Estado comunica que ha sido acordado el beneficio.

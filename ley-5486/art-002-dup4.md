@@ -1,0 +1,1 @@
+Art. 2°.- La falta de iniciación de los tramites jubilatorios en el plazo establecido en el artículo anterior, producirá automáticamente la caducidad de los beneficios emergentes de la opción formulada y dará derecho al empleador a disponer el cese en las funciones.

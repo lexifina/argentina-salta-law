@@ -1,0 +1,1 @@
+Art. 4°. Las disposiciones de los artículos precedentes son aplicables aunque existiere resolución firme, también a los afiliados a quienes en virtud del artículo 13° del decreto 9716/67, se hubiere declarado la caducidad de los beneficios emergentes de la opción formulada en los términos de los decretos 8820/62, 9202/92 y 557/63.
