@@ -1,0 +1,1 @@
+ARTÍCULO 2. - La Comisión Nacional del Tratado de la Cuenca del Plata es un organismo fuera de nivel, dependiente del Ministerio de Relaciones Exteriores y Culto, que tiene por misión proponer al Poder Ejecutivo Nacional la política a aplicar en el ámbito de la Cuenca del Plata.
