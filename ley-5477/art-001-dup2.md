@@ -1,0 +1,1 @@
+Artículo 1º - En todo proceso penal el Juez o Tribunal interviniente podrá prescindir del envío del exhorto para obtener prueba informativa, documental o pericia, o para que se le remitan efectos, o para disponer la entrega de bienes. Si el requerimiento debe formularse a una autoridad judicial no será de aplicación el presente convenio.

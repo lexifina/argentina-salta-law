@@ -1,0 +1,1 @@
+Artículo 3º - Con el fin de no incurrir en demoras, la orden judicial deberá dirigirse, en lo posible, a la sección, departamento y oficina que efectivamente sea la encargada de cumplirla, evitando los pases internos entre las distintas dependencias de la destinataria.

@@ -1,0 +1,1 @@
+Artículo 2º - El requerimiento se efectuará directamente a la autoridad o persona de existencia ideal o visible que se encuentre en posesión de la información, documento u objeto, que deba efectuar la pericia o practicar la diligencia que se solicite.
