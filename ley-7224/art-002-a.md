@@ -1,0 +1,1 @@
+Art. 2º - A los mismos fines se faculta a actuar en iguales condiciones a las Delegaciones u Oficinas Seccionales del interior de la Provincia, constituyéndose en oficinas móviles cuando la celebración se realice fuera del ámbito de las mismas.
