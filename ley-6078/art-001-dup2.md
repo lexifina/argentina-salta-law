@@ -1,0 +1,1 @@
+Artículo 1º- Funciones del Consejo: Coordinar la acción de los Gobiernos y procurar el logro de la aplicación de una política coherente en la materia de Protección Integral del Menor y la Familia, en todo el territorio de la nación.
