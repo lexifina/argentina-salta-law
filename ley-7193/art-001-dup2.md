@@ -1,0 +1,1 @@
+Artículo Primero: Apruébase –ad referéndum de las respectivas Legislaturas Provinciales- este “Tratado de las Provincias Productoras de Hidrocarburos” integrado por los considerandos precedentes, esta resolución y el Estatuto que como Anexo I se agrega formando parte del presente, modificando a ese respecto al actual Tratado que diera origen a la Organización.
