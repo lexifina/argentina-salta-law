@@ -1,0 +1,1 @@
+ARTÍCULO 3º — El juez requerirá un diagnóstico de interacción familiar efectuado por peritos de diversas disciplinas para determinar los daños físicos y psíquicos sufridos por la víctima, la situación de peligro y el medio social y ambiental de la familia. Las partes podrán solicitar otros informes técnicos.

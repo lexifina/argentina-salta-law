@@ -1,0 +1,1 @@
+ARTÍCULO 5º — El juez, dentro de las 48 horas de adoptadas las medidas precautorias, convocará a las partes y al ministerio público a una audiencia de mediación instando a las mismas y su grupo familiar a asistir a programas educativos o terapéuticos, teniendo en cuenta el informe del artículo 3.
