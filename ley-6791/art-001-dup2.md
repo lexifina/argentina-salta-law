@@ -1,0 +1,1 @@
+Artículo 1º.- Apruébase en todas sus partes el Convenio celebrado el día 24 de marzo de 1994 entre el Gobierno de la provincia de Salta y el Consejo Federal de Agua Potable y Saneamiento, cuyo texto en fotocopia autenticada forma parte integrante del presente decreto.
