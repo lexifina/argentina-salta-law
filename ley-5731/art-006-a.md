@@ -1,0 +1,1 @@
+ARTICULO 6º – A fin de asegurar el cumplimiento de las obligaciones emergentes del régimen nacional de previsión y las finalidades del Fondo Nacional de la Vivienda, el Poder Ejecutivo nacional queda facultado para elevar los porcentajes establecidos por los artículos 2º y 5º.

@@ -1,0 +1,1 @@
+ARTICULO 1º – Suprímense las contribuciones a cargo de los empleadores, establecidas por el artículo 8º de la Ley Nº 18.037 (t. o. 1976), correspondiente a las remuneraciones que se devenguen a partir del 1º de octubre de 1980.
