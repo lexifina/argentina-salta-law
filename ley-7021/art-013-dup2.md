@@ -1,0 +1,2 @@
+Art. 13.- Los socios que violen este Reglamento o las normas que se dicten en su consecuencia y los que transgredan los fines para los que fue creado el Círculo, podrán ser sancionados, según el grado de gravedad de la falta o infracción cometida, por la suspensión o pérdida de los derechos de socios. Esta última sanción sólo podrá ser aplicada por la Asamblea.
+Una Asamblea Extraordinaria expresamente convocada al efecto, reglamentará el régimen disciplinario y el procedimiento para su aplicación, asegurando el derecho de defensa del asociado.

@@ -1,0 +1,1 @@
+Art. 7º.- Los socios plenos Activos que hayan cumplido veinticinco (25) años consecutivos como tales, pasarán a ser Socios Vitalicios. Anualmente la Comisión Directiva pondrá en conocimiento de la Asamblea Ordinaria la nómina de los socios activos que hayan cumplido este requisito y desde entonces quedarán exentos del pago de la cuota social.

@@ -1,0 +1,1 @@
+Art. 5º.- A los fines de la ley de Creación del Círculo, los socios plenos que cumplieron su mandato de diputado, senador, convencional constituyente tanto provinciales como nacionales, tienen derecho a continuar usando el título correspondiente, con el aditamento M.C. (Mandato Cumplido). Socios activos

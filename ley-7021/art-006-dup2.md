@@ -1,0 +1,1 @@
+Art. 6º.- Son socios activos, los socios plenos que expresamente requieran revistar en tal carácter y se comprometen a abonar la cuota social, estando habilitados para ejercer el derecho de elegir o ser elegidos, teniendo pago el semestre inmediato anterior a la convocatoria.
