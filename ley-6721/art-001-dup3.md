@@ -1,0 +1,1 @@
+ARTICULO 1º — Apruébase la CONVENCIÓN SOBRE LOS DERECHOS DEL NIÑO, adoptada por la Asamblea General de las Naciones Unidas en Nueva York (ESTADOS UNIDOS DE AMÉRICA) el 20 de noviembre de 1989, que consta de CINCUENTA Y CUATRO (54) artículos, cuya fotocopia autenticada en idioma español forma parte de la presente ley.
