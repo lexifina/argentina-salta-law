@@ -1,0 +1,1 @@
+ARTÍCULO 1 - La presente ley tendrá por finalidad implementar la industria sericícola en la Nación, a través de la creación de un programa de promoción y producción del gusano de seda, cuya aplicación e instrumentación dependerá del organismo que determine la reglamentación de la presente.
