@@ -1,0 +1,1 @@
+Art. 5º.- La Dirección General de Recursos Naturales Renovables requerirá la participación de Escribanía de Gobierno, para efectuar el sorteo de martilleros de la nómina remitida por la Corte de Justicia de la Provincia.

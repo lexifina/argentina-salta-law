@@ -1,0 +1,1 @@
+Art. 2º.- Los valores establecidos por la Dirección General de Recursos Naturales Renovables y aprobados por Resolución del Ministerio de Economía se reactualizarán según lo prescripto en el artículo 2º de la ley Nº 6598 mediante el dictado de unas disposición de la Dirección General de Recursos Naturales Renovables.

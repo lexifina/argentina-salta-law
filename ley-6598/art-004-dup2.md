@@ -1,0 +1,1 @@
+Art. 4º.- La planificación a la que alude el artículo 4º, se hará individualmente por cada plan de acción a encarar y luego consolidará, teniendo en cuenta lo prescripto en los incisos a) y b) para ser remitidos a las Cámaras Legislativas.
