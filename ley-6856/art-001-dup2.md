@@ -1,0 +1,1 @@
+Artículo 1º.- Declárase zona de estricta protección del patrimonio histórico, cultural y arquitectónico de la ciudad de Salta a la comprendida entre los siguientes límites: avenida Entre Ríos al Norte, calle San Luis, Pedro Pardo y Nuestra Señora de Talavera al Sur, faldeo del Cerro San Bernardo al Este y calles Alvear y Esteco al Oeste, incluyéndose las mencionadas arterias.
