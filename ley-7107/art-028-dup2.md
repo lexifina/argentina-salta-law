@@ -1,0 +1,2 @@
+Art. 28º - Reservas Naturales Privadas. (Reglamentario del Artículo 28º de la Ley 7107).
+Las actividades que son permitidas en las reservas naturales privadas son la investigación científica, la educación e interpretación ambiental, recreación, turismo sustentable y manejo sustentable de los recursos naturales. Las adhesiones se realizarán de acuerdo a lo que establece el artículo Reglamentario del artículo 60 de la Ley 7107.

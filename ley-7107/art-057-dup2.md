@@ -1,0 +1,6 @@
+Art. 57º - Autolimitaciones del Dominio. (Reglamentario del Artículo 53º de la Ley 7107).
+La renuncia al régimen del Área Protegida antes del plazo mínimo de 20 años, deberá ser presentada por el titular de la misma, ante la Autoridad de Aplicación. La solicitud será analizada por la Autoridad de Aplicación, previa inspección al Área Protegida, expidiéndose en un plazo máximo de 60 días. La Autoridad de Aplicación, calculará los montos actualizados de los beneficios otorgados hasta la fecha de presentación de la solicitud de renuncia al régimen de áreas protegidas,
+y notificará al titular para que en el término de noventa (90) días, deposite dicho monto en la cuenta bancaria que la Autoridad de Aplicación indique.
+La renuncia al régimen de áreas protegidas del inmueble se hará efectiva a partir de las cero horas del día siguiente del depósito bancario.
+La Autoridad de Aplicación, debe notificar en el término de diez (10) días, a la Dirección General de Inmuebles u organismo que lo reemplace, la desafectación del inmueble como Área Protegida.
+Para la actualización de los beneficios otorgados, la Autoridad de Aplicación debe aplicar una tasa de interés de referencia igual a la que cobra el Banco de la Nación Argentina para los descuentos.

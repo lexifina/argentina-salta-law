@@ -1,0 +1,2 @@
+Art. 48º - Plan de Incentivos. (Reglamentario del Artículo 47º de la Ley 7107).
+Para el goce de los beneficios establecidos en Artículo 47º de la Ley 7107, la Autoridad de Aplicación deberá elevar un informe anual al Ministerio de Finanzas y Obras Públicas o al Organismo que lo reemplace, certificando el cumplimiento o incumplimiento de los compromisos asumidos por el propietario del área en el Plan Integral de Manejo y Desarrollo.

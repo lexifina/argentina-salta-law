@@ -1,0 +1,4 @@
+Art. 11º - Zonas Núcleo o Intangibles. (Reglamentario del Artículo 11º de la Ley 7107).
+La Autoridad de Aplicación podrá establecer como Zonas Núcleo, aquellas que aun habiendo sido afectadas, sean consideradas de especial importancia para la conservación.
+Las actividades a desarrollar en las Zonas Núcleo deben contar previamente con autorización de la Autoridad de Aplicación. A tales fines, el interesado en realizar actividades en las zonas núcleo, deberá formalizar por ante la autoridad citada, la presentación del proyecto debidamente fundado, el que deberá contener los objetivos, plan de trabajo, presupuesto y toda otra información que sea requerida por la Autoridad de Aplicación.
+Los resultados de los proyectos aprobados deben ser presentados ante la misma autoridad, dentro del plazo de treinta - 30 - días hábiles de finalizados los mismos.

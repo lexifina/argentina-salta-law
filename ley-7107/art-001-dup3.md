@@ -1,0 +1,2 @@
+Artículo 1º - Dispónese que las distintas unidades administrativas dependientes de la Administración Pública Centralizada, descentralizada o autárquica, deberán abstenerse de proveer autorizaciones, permisos o concesiones, cualquiera fuere su naturaleza, condición, plazo o alcance,
+sobre el perilago del dique El Tunal, reservándose fracciones de tierras destinados únicamente para los emprendimientos indicados en los considerandos.

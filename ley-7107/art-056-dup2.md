@@ -1,0 +1,3 @@
+Art. 56º - Autolimitaciones del Dominio. (Reglamentario del Artículo 53º de la Ley 7107).
+Los titulares de inmuebles que deseen incorporase a las diferentes categorías previstas en el
+Artículo 53º de la Ley 7107, deben presentar ante la Autoridad de Aplicación una solicitud, expresando su conformidad para que el inmueble de su propiedad o parte del mismo, sea declarado en algunas de las categorías previstas; debiendo acompañar los requisitos exigidos por la Autoridad de Aplicación, la que analizará la solicitud, pudiendo requerir nuevos estudios, o documentación que a su criterio sea necesaria. La Autoridad de Aplicación, en cumplimiento con el Artículo 60º de la Ley 7107, elevará al Poder Ejecutivo la solicitud del Área Protegida, previa evaluación técnica fundada.

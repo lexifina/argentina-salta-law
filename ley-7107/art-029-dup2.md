@@ -1,0 +1,2 @@
+Art. 29º - Categorías de Manejo Internacionales. (Reglamentario del Artículo 29º de la Ley 7107).
+Las actividades posibles de realizar en dichas áreas estarán definidas en sus planes de manejo, conforme a los criterios internacionales que se establecen para las mismas; pudiendo ser entre otras, el monitoreo ambiental, la investigación, la educación ambiental y capacitación, el turismo, la recreación y manejo sustentable de los recursos naturales.

@@ -1,0 +1,2 @@
+Art. 53º - Restricciones al Dominio. (Reglamentario del Artículo 50º de la Ley 7107).
+A fin de dar cumplimiento a lo establecido en el Plan Integral de Manejo y Desarrollo del Área Protegida, se establecerán las acciones que alcancen a los entes públicos y privados, pudiendo celebrarse acuerdos o convenios que determinen su participación efectiva para lograr el cumplimiento de los fines de la declaratoria del Área Protegida.

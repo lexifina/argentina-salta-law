@@ -1,0 +1,15 @@
+Art. 6º - De las Áreas Protegidas en General. (Reglamentario del Artículo 6º de la Ley 7107).
+El Plan Integral de Manejo y Desarrollo (PIMyD) constituirá el documento técnico directriz de planificación, que regirá el Área Protegida. Este se realizará de manera participativa, junto con los actores vinculados al Área Protegida, ya sean residentes, usuarios de sus bienes y servicios ambientales, vecinos, investigadores y otros interesados en participar en la planificación.
+El PIMyD debe contar con la siguiente estructura y contenidos mínimos:
+* Caracterización: Incluirá una descripción ambiental, social, económica, de usos y de políticas de conservación en el contexto regional y la vecindad del Área Protegida, de manera de establecer las formas en que la sociedad se vincula a la misma. También incluirá aspectos administrativos y legales del Área Protegida.
+* Diagnóstico socio-ambiental: Contendrá una descripción de los valores de conservación, entendiéndose como tal a los recursos naturales, culturales y servicios que presenta y/o brinda el Área Protegida. Se describirán los problemas y/o amenazas para dar cumplimiento a los objetivos
+de conservación del Área Protegida, las limitaciones y restricciones para su manejo, las potencialidades respecto a usos y actividades y el estado de conservación de los valores y/o del Área Protegida. En esta sección se analizará la categoría de conservación asignada.
+* Plan Estratégico: Incluirá los objetivos y/o la misión y la visión del Área Protegida y los objetivos y metas del Plan de Manejo. Se establecerá la zonificación interna y externa del Área Protegida. Las zonas de manejo serán definidas en función de los artículos 9º al 15º de la Ley 7107 y su reglamentación.
+También se establecerán los programas de manejo y dentro de éstos, las acciones a ejecutarse. La programación tendrá como mínimo: programa de protección y manejo, programa de administración, programa de investigación y monitoreo, programa de educación ambiental y difusión. Se consignará el cronograma, las prioridades de ejecución y el presupuesto para la implementación del PIMyD.
+* Seguimiento y Evaluación: El PIMyD, contendrá un sistema de evaluación y seguimiento del mismo, el que incluirá mínimamente indicadores de éxito y cumplimiento.
+* Anexos: la información complementaria será incluida en anexos; como ser:
+- Listados de especies de flora y fauna, estadísticas del área y de la región, etc.
+- Cartografía: Contexto geográfico, propiedades lindantes, uso actual del suelo, mapa de vegetación, topografía, zonificación, etc.
+- Bibliografía consultada
+La Autoridad de Aplicación podrá exigir otros requerimientos en función de los objetivos y categoría del Área Protegida, inclusive mediante la intervención de organismos públicos o actores relevantes para el Área. El PIMyD será aprobado por Resolución de la Autoridad de Aplicación.
+Los Planes Operativos Anuales (POAs), seguirán de forma ejecutiva, la estructura del PIMyD y contendrán: Metas específicas, plazos de ejecución, responsable, presupuestos y evaluación de resultados alcanzados.

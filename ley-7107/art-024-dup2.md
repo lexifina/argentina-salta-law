@@ -1,0 +1,1 @@
+Art. 24º - Refugios Provinciales de Vida Silvestre. (Reglamentario del Artículo 24º de la Ley 7107). Las actividades permitidas en los Refugios Provinciales de Vida Silvestre, deben ser aprobadas previamente por la Autoridad de Aplicación.
