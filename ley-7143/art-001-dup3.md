@@ -1,0 +1,1 @@
+Articulo 1° - La realización de una prueba de rastreo para la detección precoz de la fenilcetonuria será obligatoria en todas las maternidades y establecimientos asistenciales que tengan a su cuidado a niños recién nacidos.

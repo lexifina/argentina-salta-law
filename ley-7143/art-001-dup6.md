@@ -1,0 +1,1 @@
+Artículo 1º.- La realización de una prueba de rastreo para la detección precoz de la fenilcetonuria y el hipotiroidismo congénito y la fibrosis quística o mucoviscidosis será obligatoria en todas las maternidades y establecimientos asistenciales que tengan a su cuidado a niños recién nacidos.

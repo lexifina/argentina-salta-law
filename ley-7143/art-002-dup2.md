@@ -1,0 +1,1 @@
+Art. 2º.- Encomiéndase a los Ministerio de Salud Pública y de Hacienda, adoptar las acciones necesarias para incorporar a la brevedad posible la previsión de recursos y gastos en la Ley de Presupuesto para el pleno cumplimiento de lo dispuesto en la ley que se promulga.
