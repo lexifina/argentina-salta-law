@@ -1,0 +1,1 @@
+Art. 3º - Los Establecimientos Educativos de gestión pública y gestión privada, incluirán en los pro-yectos educativos institucionales la educación sexual responsable, respondiendo a lo establecido en los diseños curriculares de la Provincia y a las necesidades específicas de los mismos y su entorno.
