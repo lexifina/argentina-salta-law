@@ -1,0 +1,4 @@
+Art. 4º - Los agentes del ex Tribunal de Cuentas de la provincia, que a la fecha hayan sido trasladados a otros organismos del Poder Ejecutivo Provincial con aplicación del Artículo 4º del Decreto Nº 2.489/96, tendrán como tope de aplicación del mencionado artículo la remuneraciones que les hubiesen correspondido en la Sindicatura General de la Provincia por aplicación de lo dispuesto en el presente decreto de acuerdo al siguiente detalle a partir del día 01 de junio de 2001; Casermeiro de Gotilla, María Beatriz, Agrupamiento Profesional, Subgrupo 2, Nivel 5, Función Jerárquica SIGEP P2.
+Jorge Díaz, Juan Guillermo, Agrupamiento Profesional, Subgrupo 2, Nivel 4, Función Jerárquica SIGEP P3.
+Aranda de Madeo, María, Agrupamiento Profesional, Subgrupo 2, Nivel 5, Función Jerárquica SIGEP P3.
+Sastre, Jorge Alejandro, Agrupamiento Profesional, Subgrupo 2, Nivel 2, Función Jerárquica SIGEP P3.

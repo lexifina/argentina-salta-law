@@ -1,0 +1,2 @@
+Art. 13 - El gasto que demande el cumplimiento del presente se imputará a las respectivas partidas
+de la Jurisdicción 01, Unidad de Organización 17 para la Sindicatura General de la Provincia y a la Unidad de Organización 01 de la Jurisdicción que corresponda para cada una de las Unidades de Sindicatura Interna, debiéndose efectuar las respectivas transferencias de partidas presupuestarias, como así también el traspaso de los pertinentes bienes patrimoniales, documentación y trámite pendientes.

@@ -1,0 +1,1 @@
+Artículo 1º - Con vigencia al día 01 de Junio de 2001, apruébanse las estructura planta de cargo y cobertura de la Sindicatura General de la Provincia y las Unidades de Sindicatura Interna, que como Anexos I y II, forman parte del presente.
