@@ -1,0 +1,2 @@
+Art. 2°.- Téngase por ley de la Provincia, cúmplase, comuníquese, publíquese, dése al Registro Oficial de Leyes y archívese.
+PLAZA – Díaz – Vicente – Salazar – Rodríguez

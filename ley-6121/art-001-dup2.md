@@ -1,0 +1,1 @@
+Artículo 1°.- El Organismo de Coordinación Permanente de los Registros Civiles de la República Argentinafuncionará como un ente colegiado y permanente, cuya estructura y objetivos se establecen en la presente Carta Orgánica.
