@@ -1,0 +1,2 @@
+ARTÍCULO 3º — La presente ley regirá en todo el territorio de la Nación, sus disposiciones son de orden público, operativas y se utilizarán para la interpretación y aplicación de la legislación específica sobre la materia, la cual mantendrá su vigencia en cuanto no se oponga a los principios y disposiciones contenidas en ésta.
+Principios de la política ambiental

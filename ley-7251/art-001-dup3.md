@@ -1,0 +1,1 @@
+ARTÍCULO 1º — La presente ley establece los presupuestos mínimos para el logro de una gestión sustentable y adecuada del ambiente, la preservación y protección de la diversidad biológica y la implementación del desarrollo sustentable.

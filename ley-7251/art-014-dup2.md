@@ -1,0 +1,1 @@
+Artículo 14º: La Secretaría Ejecutiva presidida por el presidente de la asamblea será el órgano ejecutivo y de control. Expedirá las instrucciones necesarias para el cumplimiento de estas resoluciones, indicando en el informe pertinente, que elevará a la asamblea ordinaria, las dificultades y alternativas que crea oportunas.

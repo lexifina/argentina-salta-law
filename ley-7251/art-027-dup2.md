@@ -1,0 +1,1 @@
+Artículo 27º: EL COFEMA comenzará a funcionar a los noventa días corridos, contados desde la fecha de la Asamblea constitutiva, siempre que durante ese lapso haya sido ratificado este acuerdo, o han adherido, al menos siete jurisdicciones, o después de esa fecha, si este número de miembros se alcanzase.
