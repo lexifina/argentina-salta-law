@@ -1,0 +1,1 @@
+Artículo 1º.- Fíjase en un tres por ciento (3%) del total de los ingresos de cada Municipio de la Provincia, resultantes de la aplicación de las Leyes 5.082, 6.438 y Ley 6.612, y sus respectivas modificatorias, las sumas que dichos municipios podrán afectar a los gastos totales de sus respectivos Concejos Deliberantes.
