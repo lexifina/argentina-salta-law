@@ -1,0 +1,3 @@
+Artículo 1º.- Conforme a lo establecido en los artículos 131 y 144, inciso 4) de la Constitución Provincial y en el artículo 13 de la Ley Nº 6.811, obsérvase parcialmente el proyecto de ley sancionado por las Cámaras Legislativas, en sesión del día 03/07/01, ingresado bajo expediente Nº 91-10.469/01 Referente, en fecha 16/07/01, mediante el cual se crea la Caja de Seguridad Social del Consejo Profesional de Ciencias Económicas de Salta, expresándose en carácter de veto lo que sigue:
+a) Suprímase el texto completo del artículo 124;
+b) Suprímase el texto del articulo 56, la frase “...cuya decisión será inapelable”.
