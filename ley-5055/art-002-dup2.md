@@ -1,0 +1,1 @@
+Art. 2º- Firmantes: El presente Convenio y los adicionales que el mismo diere lugar serán firmados por parte del Gobierno de la provincia de Salta por el Excelentísimo Sr. Gobernador de la misma y por “El INPRES” por su Director Nacional.
