@@ -1,0 +1,1 @@
+Art. 7º - La Autoridad de Aplicación arbitrará los medios necesarios, mediante la acreditación de una o más empresas certificadoras reconocidas, a fin de reducir los costos y facilitar la adopción del Sello a la mayor cantidad de productores y productos, con especial énfasis en los pequeños productores y comunidades en riesgo o distantes y aisladas.

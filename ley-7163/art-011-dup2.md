@@ -1,0 +1,1 @@
+Art. 11 - Se invita a los Municipios a adherirse al presente decreto, en aspectos referidos a la difusión, apoyo para la constitución de los Consejos de Promoción o Cooperativas Especializadas y otras actividades que posibiliten la instrumentación del mismo en el ámbito de su Municipio.

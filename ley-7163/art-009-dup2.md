@@ -1,0 +1,1 @@
+Art. 9º - En caso que haya necesidad de proteger o apoyar la producción por causas que hagan peligrar las fuentes de trabajo, se aplicarán criterios similares vigentes actualmente en Emergencia Agropecuaria a nivel provincial y nacional, con extensión a las distintas actividades contempladas en el presente decreto (Artículo 1º) y cualquier otra norma que entrase en vigencia.
