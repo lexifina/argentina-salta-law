@@ -1,0 +1,1 @@
+Art. 2º.- El presente Protocolo Adicional entrará en vigencia a partir del 1 del mes subsiguiente a la fecha en que se obtenga la adhesión de todas las jurisdicciones y será de aplicación para las obligaciones tributarias correspondientes a los ejercicios fiscales iniciados a partir del 1 de enero de 1981.
