@@ -1,0 +1,1 @@
+Artículo 1º.- Pónese interinamente a cargo del mando gubernativo de la Provincia, al señor Vicegobernador de la misma, Dr. Ricardo Gómez Diez, a partir del día 22 de agosto del año en curso y mientras dure la ausencia de su titular.
