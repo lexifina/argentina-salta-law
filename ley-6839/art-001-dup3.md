@@ -1,0 +1,6 @@
+Artículo 1º.- A los fines de esta ley denomínase Sistema de Gestión de la Provincia al conjunto de acciones ordenadas, orgánicas y planificadas de los funcionarios de la Administración Centralizada y Descentralizada, y de las organizaciones de la sociedad civil en el marco de convenio de ejecución y gestión de programas de Gobierno en procura de:
+1) La aplicación en la provincia de Salta del ordenamiento jurídico emanado del Gobierno nacional, sea cual fuere su contenido y la implementación de las políticas adoptadas por dicho Gobierno.
+2) Suministrar a los agentes económicos de la Provincia, en especial a los empresarios radicados en la misma, la información que éstos requieran a los fines de la toma de sus decisiones.
+3) Facilitar el procesamiento de la información señalada en el inciso anterior, suministrando, incluso, servicios de consultoría para la reconversión y re-ingeniería de las empresas situadas en la Provincia, con particular énfasis en las pequeñas y medianas.
+4) Colaborar con los agentes económicos de la Provincia, en especial con sus empresarios, en la concreción de sus decisiones de inversión, y en el seguimiento de las mismas.
+5) Las demás tareas que asigne al Sistema el Gobernador de la Provincia.
