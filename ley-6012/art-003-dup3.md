@@ -1,0 +1,1 @@
+Artículo 3. En los casos previstos en los incisos d) y e) del artículo 7o. de la Ley 20.247 la COMISIÓN NACIONAL DE SEMILLAS (CONASE) emitirá su opinión en un plazo de quince (15) días, pudiendo solicitar una única prórroga por igual plazo si la complejidad del tema lo requiera. Vencido dicho plazo, el organismo de aplicación de la ley dispondrá sin más trámite.

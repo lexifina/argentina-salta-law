@@ -1,0 +1,1 @@
+Artículo 2. La COMISIÓN NACIONAL DE SEMILLAS (CONASE) ejercerá las funciones de asesoramiento del artículo 7o. de la Ley 20.247 en jurisdicción de la SECRETARÍA DE AGRICULTURA, GANADERÍA Y PESCA, siendo presidida por la máxima autoridad del organismo de aplicación de la citada ley.

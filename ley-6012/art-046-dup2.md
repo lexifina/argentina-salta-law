@@ -1,0 +1,1 @@
+Artículo 46. La declaración de ―uso público restringido‖ se publicará en el Boletín Oficial y en UNA (1) publicación especializada, solicitando en la misma la presentación de terceros interesados, así como las garantías técnicas y económicas mínimas y demás requisitos que deban reunir dichos postulantes.

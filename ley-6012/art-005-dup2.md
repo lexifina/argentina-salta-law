@@ -1,0 +1,1 @@
+Artículo 5. La SECRETARÍA DE AGRICULTURA, GANADERÍA Y PESCA, como autoridad de aplicación de la Ley 20.247 ejercerá por conducto del SERVICIO NACIONAL DE SEMILLAS (SENASE), o del organismo que en el futuro lo reemplace, las atribuciones que se detallen en el artículo 6o. del presente decreto.

@@ -1,0 +1,1 @@
+Artículo 47. Toda explotación de ―uso público restringido‖ deberá ser registrada por el organismo de aplicación. Los terceros interesados serán inscriptos por el mismo organismo, indicando nombre, domicilio, lugar y superficie de la explotación a realizar, e información referida al cumplimiento de las garantías técnicas y económicas fijadas.

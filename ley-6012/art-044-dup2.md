@@ -1,0 +1,1 @@
+Artículo 44. No se requerirá la autorización del obtentor de una variedad conforme lo establece el artículo 27 de la Ley 20247, cuando un agricultor reserve y use simiente en su explotación, cualquiera sea el régimen de tenencia de la misma, el producto cosechado como resultado de la siembra en dicho lugar de una variedad protegida.

@@ -1,0 +1,1 @@
+Artículo 1º — La presente ley tiene por objeto promover una eficiente actividad de producción y comercialización de semillas, asegurar a los productores agrarios la identidad y calidad de la simiente que adquieren y proteger la propiedad de las creaciones fitogenéticas.

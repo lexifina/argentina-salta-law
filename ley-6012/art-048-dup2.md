@@ -1,0 +1,1 @@
+Artículo 48. El organismo de aplicación realizará el control de existencia de semilla original de la variedad de ―uso público restringido‖ en la explotación licenciada a terceros. Las simientes sobrantes deberán ser devueltas al titular de la variedad a la finalización del término por el cual se ha declarado el ―uso público restringido‖.

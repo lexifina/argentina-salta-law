@@ -1,0 +1,1 @@
+Artículo 45. Las resoluciones definitivas de los organismos administrativos creados por la Ley 20.247 y por este Reglamento, serán recurribles ante la Justicia en lo Contenciosos Administrativo Federal y no excluyen a las acciones emergentes de la propiedad de variedades que en el ámbito privado pudieran corresponder por infracción a otras normas legales.
