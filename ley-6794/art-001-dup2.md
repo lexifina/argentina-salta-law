@@ -1,0 +1,1 @@
+Artículo 1º.- Obsérvase el punto 3 – del artículo 1º del proyecto de ley sancionado por las Cámaras Legislativas, en sesión realizada el 29 de junio de 1995, mediante el cual se modifica la Ley 6.786, conforme lo establecen los artículos 128 y 141 inciso 4) de la Constitución Provincial e ingresada bajo Expte. Nº 91-5.456/95 – Ref. el día 30 de junio de 1995.
