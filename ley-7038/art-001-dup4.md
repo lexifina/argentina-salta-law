@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- El Ministerio de Salud y Acción Social, por intermedio de la Secretaría de Programas de Salud y de las áreas técnicas de su dependencia que correspondieran, actuará como Autoridad de Aplicación de la Ley 23.753 y del presente Decreto Reglamentario.

@@ -1,0 +1,1 @@
+ARTÍCULO 6º .- El Ministerio de Salud y Acción Social instará a las jurisdicciones a que en previsión de situaciones de emergencia que afecten la cadena de producción, distribución o dispensación de insulina, establezcan las medidas de excepción que estimen necesarias para asegurar lo establecido en el artículo 3º de la presente reglamentación.

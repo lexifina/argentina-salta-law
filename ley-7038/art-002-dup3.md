@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- El Ministerio de Salud y Acción Social promoverá, por la vía que corresponda, la adhesión de las provincias y eventualmente de otras jurisdicciones al régimen de la citada Ley y de la presente Reglamentación.
