@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Apruébase el Acuerdo de Reafirmación Federal celebrado con fecha 24 de mayo de 1990, en la ciudad de Luján, entre el Estado Nacional, las Provincias y la Municipalidad de la Ciudad de Buenos Aires, cuyo texto como Anexo forma parte integrante de la presente ley.
