@@ -1,0 +1,1 @@
+ARTÍCULO 3° - El Estado proveerá al fomento, desarrollo, investigación, promoción, difusión, preservación y control de la actividad turística en todo el territorio de la República Argentina, otorgando beneficios impositivos, tributarios y crediticios similares a los de la actividad industrial.
