@@ -1,0 +1,1 @@
+ARTICULO 1.- Créase al Consejo Federal de Inversiones como organismo permanente de investigación, coordinación y asesoramiento, encargado de recomendar las medidas necesarias para una adecuada política de inversiones y una mejor utilización de los distintos medios económicos conducentes al logro de un desarrollo basado en la descentralización.

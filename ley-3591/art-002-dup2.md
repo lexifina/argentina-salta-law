@@ -1,0 +1,1 @@
+ARTICULO 2.- El Consejo Federal de Inversiones gozará de personería jurídica para el cumplimiento de sus fines. Podrá adquirir toda clase de bienes por compra, donación o cualquier otro título; enajenarlos y celebrar toda clase de contratos vinculados a sus funciones.
