@@ -1,0 +1,3 @@
+ARTÍCULO OCTAVO: La Administración de la Sociedad está a cargo de un Directorio compuesto por cuatro (4) miembros Titulares e igual número de suplentes, designados por la Asamblea, con mandato por cuatro (4) años, siendo renovables por mitades cada dos años, pudiendo ser reelegidos. El Directorio sorteará oportunamente los miembros que deberán cesar en el primer período.
+Los Directores en su primera sesión deberán designar un Presidente y un Vice-Presidente; quién reemplazará al primero en caso de ausencia o impedimento.
+El Poder Ejecutivo Provincial designará el Primer Directorio, nombrando de entre ellos al Presidente y al Vice-Presidente.

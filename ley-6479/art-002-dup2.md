@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO: EMSATUR tendrá su domicilio en la ciudad de Salta, asiento de su Administración Central, pudiendo habilitar agencias, sucursales o representaciones en cualquier punto del país y del exterior que el Directorio considere necesario para el cumplimiento de sus objetivos.

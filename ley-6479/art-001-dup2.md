@@ -1,0 +1,2 @@
+ARTÍCULO PRIMERO: Bajo la denominación de Empresa Salteña de Turismo, Sociedad del Estado, en abreviatura EMSATUR, queda constituida una Sociedad del Estado dentro del área del Ministerio de Economía, con sujeción al régimen del presente Estatuto.
+En el cumplimiento de las actividades propias de su objeto social y en todos los actos jurídicos que formalice, podrá usar indistintamente su nombre o la sigla EMSATUR.

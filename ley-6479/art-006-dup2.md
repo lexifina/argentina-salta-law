@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO: La Sociedad tiene plena capacidad jurídica para realizar todo tipo de actos, contratos y operaciones que hagan exclusivamente al cumplimiento de su objeto, actuando por cuenta propia y/o de terceros, dentro o fuera del país.
