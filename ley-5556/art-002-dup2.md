@@ -1,0 +1,1 @@
+Art. 2º.- Los organismos de la administración pública nacional, provincial o municipal, no deberán dar ningún trámite a los planos que carezcan de la visación y constancia referidos en el artículo 1º de este decreto.

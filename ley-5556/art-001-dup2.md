@@ -1,0 +1,1 @@
+Artículo 1º.- Cualquier documentación de estructuras sismorresistentes carecerá de valor cuando además de la visación legal obligatoria por parte del Consejo Profesional de Agrimensores, Arquitectos, Ingenieros y Profesiones Afines – Salta, no tenga la constancia con la firma del profesional responsable del mismo, designado para tales funciones.
