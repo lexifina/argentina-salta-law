@@ -1,0 +1,2 @@
+Art. 3º.- Será considerado plantel básico de personal, la dotación expresada numéricamente por la ley de Presupuesto, de trabajadores necesarios e indispensables comprendidos dentro de la
+estructura de la Administración Pública Provincial para la cual debe ejecutar trabajos, cumplir funciones y prestar servicios que le son propios. El plantel básico de personal, encuadrado en el presente Convenio Colectivo de Trabajo, será remunerado con el Presupuesto de la Provincia de Salta.

@@ -1,0 +1,1 @@
+Artículo 1º.- Apruébase el Convenio Colectivo de Trabajo para el Sector Público Provincial celebrado entre la Administración Pública Provincial y sus empleados representados por su entidad sindical con personería gremial, cuyo texto forma parte del presente decreto, como Anexo del mismo.

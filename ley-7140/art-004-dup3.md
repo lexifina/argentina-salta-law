@@ -1,0 +1,1 @@
+Art. 4º.- El personal que ingrese por medio de los mecanismos de selección que se establecen en el presente convenio, a cargos pertenecientes a los distintos sistemas de carrera, tendrá previsto su financiación en cada jurisdicción u organismo.

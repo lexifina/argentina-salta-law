@@ -1,0 +1,1 @@
+Art. 14º.- Los cargos cubiertos por Concursos deberán ser revalidados garantizando la carrera administrativa en su naturaleza sistemáticamente cada cinco años o de acuerdo a lo establecido en las bases del concurso original.

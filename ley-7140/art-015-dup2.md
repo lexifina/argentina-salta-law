@@ -1,0 +1,2 @@
+Art. 15º.- El sistema de la carrera administrativa provincial vigente, podrá ser revisado, adecuado y modificado de resultar procedente, en el ámbito de la negociación colectiva, con participación de las asociaciones sindicales signatarias del convenio colectivo de trabajo conforme con lo estipulado en la ley marco; con excepción de las materias reservadas a la potestad constitucional establecidas para el Estado o las que surjan en el futuro.
+Cobertura por Vacantes:
