@@ -1,0 +1,1 @@
+Art. 2º.- El Fiscal de Estado es titular de la Fiscalía de Estado, la que está integrada, además, por la Fiscal de Estado adjunto, los funcionarios de la Fiscalía de Estado y los abogados de la Fiscalía de Estado.
