@@ -1,0 +1,1 @@
+Artículo 1º.- En Ente Interjurisdiccional creado por el tratado celebrado entre los señores Gobernadores de la Provincia de …y suscripto en la ciudad de… a los… días del mes de….de 1986, se denominará Organismo Interjurisdiccional de Asesoramiento en Materia de Hidrocarburos.

@@ -1,0 +1,1 @@
+Art. 2º.- Tendrá por objeto el asesoramiento a los Estados Miembros sobre política que se desarrolle en materia de hidrocarburos, en sus respectivos territorios. Asimismo, cumplirá las funciones necesarias para verificar el cumplimiento del Estado Nacional, sus empresas o sociedades, de las normas que rigen la actividad.
