@@ -1,0 +1,1 @@
+Artículo 1º.- OBJETO: Habiéndose terminado las obras civiles de las estaciones sismológicas correspondientes a la primera etapa de la Red Sismológica Zonal NOA y el montaje, calibración y puesta en marcha de las mismas, se hace indispensable establecer la supervisión y coordinación de dichas estaciones para asegurar su correcto y efectivo funcionamiento.

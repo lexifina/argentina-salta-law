@@ -1,0 +1,1 @@
+Art. 2º.- “El INPRES” encomienda a “La Provincia” por intermedio de la SEOP las tareas mencionadas en el artículo anterior, a cuyo efecto ésta designa al Ing. Enrique Czenky, Director de Coordinación de la SEOP, el que a este solo efecto dependerá administrativamente de “El INPRES”, a través del Departamento de Sismología.
