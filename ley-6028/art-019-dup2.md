@@ -1,0 +1,1 @@
+ARTICULO 19. — Toda persona que tenga conocimiento de haberse producido algún incendio de bosques está obligada a formular de inmediato la denuncia ante la autoridad más próxima. Las oficinas telefónicas, telegráficas y de radiocomunicaciones oficiales o privadas deberán transmitir sin previo pago y con carácter urgente las denuncias que se formulares.

@@ -1,0 +1,1 @@
+ARTICULO 15. — Las autorizaciones o aprobaciones a que se refiere el artículo anterior deberán ser otorgadas o negadas dentro del término de treinta días de la presentación del pedido y se reputarán tácitamente acordadas transcurridos quince días desde la fecha de reiteración de la solicitud.

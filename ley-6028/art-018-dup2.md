@@ -1,0 +1,3 @@
+ARTICULO 18. — El transporte de productos forestales fuera de lo propiedad fiscal no podrá realizarse sin estar marcados o individualizados y sin las correspondientes guías parciales expedidas por autoridad competente. Dichas guías serán confeccionadas por triplicado y en las mismas se especificarán; cantidad, especie, peso, procedencia y destino del producto transportado.
+Las empresas de transporte no podrán aceptar cargas de productos forestales que no se encuentren acompañados por la respectiva guía, bajo pena de aplicársele una multa igual al valor transportado. El triplicado de las guías deberá simultáneamente enviarse a la sección estadística de Agricultura de la Nación.
+Prevención y lucha contra incendio
