@@ -1,0 +1,1 @@
+ARTICULO 12.- La calificación del Programa como de Emergencia Nacional y Prioritaria será tenida en cuenta por el o los organismos fiscalizadores con el fin de agilizar la dinámica contractual y posibilitar un eficiente grado de ejecutividad y capacidad de decisión para el desarrollo del mismo.

@@ -1,0 +1,1 @@
+ARTICULO 16.- Las responsabilidades emergentes de la Ley Nro.23.102, del presente decreto y las normas que se dicten al efecto, recaerán personal y solidariamente sobre el propietario o firma propietaria del establecimiento elaborador de productos farmacéuticos y su Director Técnico.

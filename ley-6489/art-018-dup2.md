@@ -1,0 +1,1 @@
+ARTICULO 18.- La Secretaría de Salud arbitrará las medidas necesarias para que una vez firmes las sanciones aplicadas, sus fundamentos y la mención de las personas sancionadas tenga la debida difusión pública.

@@ -1,0 +1,1 @@
+ARTICULO 21.- Los montos previstos en el Artículo 17, inciso a), y las multas aplicadas en su consecuencia serán actualizados trimestralmente de conformidad al incremento que experimenten en el trimestre anterior el índice de precios al por mayor, nivel general, que publicare el Instituto Nacional de Estadística y Censos.

@@ -1,0 +1,1 @@
+ARTICULO 20.- La falta de pago de las multas aplicadas hará exigible su cobro por vía de ejecución fiscal, constituyendo suficiente título de ejecución el testimonio de la resolución condenatoria firmada y expedida por el organismo de aplicación o autoridad judicial.

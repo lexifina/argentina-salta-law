@@ -1,0 +1,1 @@
+ARTICULO 5.- El Ministerio de Salud y Acción Social, informará al Poder Ejecutivo el monto de los ingresos del Fondo durante cada período semestral, las acciones desarrolladas y las inversiones efectuadas, a los fines establecidos en el Artículo 6 de la Ley.

@@ -1,0 +1,1 @@
+ARTICULO 11.- Los trámites para el funcionamiento del "Fondo de Asistencia en Medicamentos (F.A.M.)" quedan calificados como de Emergencia Nacional y Prioritarios, debiéndosele asegurar el carácter de urgente despacho y arbitrarse a tal fin las medidas administrativas que correspondieren en todos los organismos centralizados y descentralizados del Estado Nacional.

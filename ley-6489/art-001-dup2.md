@@ -1,0 +1,1 @@
+ARTICULO 1º — Facúltase al Poder Ejecutivo para la realización de un Programa de emergencia dirigido a atender gratuitamente las necesidades de medicamentos destinados a grupos sociales y económicamente desprotegidos.
