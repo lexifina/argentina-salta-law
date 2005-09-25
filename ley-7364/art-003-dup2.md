@@ -1,0 +1,2 @@
+Art. 3º - El Consejo de Administración tendrá por función primordial autorizar las solicitudes de financiamiento que se presenten en virtud de la Ley Nº 7364, de esta reglamentación y todas las derivadas para el cumplimiento del presente.
+A tal fin podrá requerir asesoramiento técnico a las distintas áreas del Estado con incumbencia en la materia a efectos de contar con la información que considere necesaria.
