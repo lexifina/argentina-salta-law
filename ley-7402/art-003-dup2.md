@@ -1,0 +1,1 @@
+Art. 3º - Transfiérase al ámbito de la Secretaría de Defensa del Consumidor la totalidad de las facultades, funciones y atribuciones mencionadas en el Decreto 740/07, como así también el Registro Provincial de Asociaciones de Consumidores y el Registro de Árbitros Institucionales para el Sistema de Arbitraje de Consumo, previstos en los arts. 5º y 6º del mencionado Decreto.

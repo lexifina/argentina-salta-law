@@ -1,0 +1,1 @@
+Art. 2º - Desígnase a la Secretaría de Defensa del Consumidor de la Provincia como autoridad de Aplicación y con asignación de competencias en la Provincia de Salta de la Ley Nº 7.402, Ley Nacional Nº 19.511 de Metrología Legal; la Ley Nº 22.802 de Lealtad Comercial; La Nº 25.156. Ley de Defensa de la Competencia.
