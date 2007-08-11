@@ -1,0 +1,4 @@
+Artículo 1º - Con encuadre en lo previsto por los artículos 144, inc. 4), 131, 133 y concordantes de la Constitución Provincial, y 11 de la Ley Nº 7.190, observase parcialmente el Proyecto de Ley que modifica el Decreto Ley Nº 15/75 referido a la Afiliación Voluntaria y Regularización de Aportes a
+la Caja de Seguridad Social para Abogados y Procuradores de la Provincia de Salta, ingresado a la Secretaría General de la Gobernación el 11 de Julio de 2007, bajo Expediente Nº 91-16.528/07 Referente, según se expresa a continuación:
+En el artículo 2º: Vétase íntegramente su texto.
+En el artículo 3: Vétase en el texto del artículo 25 sancionado para el Decreto Ley Nº 15/75, la frase: “... y la categoría “I” para los afiliados que voluntariamente decidan mantener la afiliación, de conformidad a lo previsto en el segundo y tercer párrafo del artículo 18.”
