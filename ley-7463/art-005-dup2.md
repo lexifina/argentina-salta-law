@@ -1,0 +1,1 @@
+Art. 5º - Con igual vigencia la cobertura de funciones dispuestas en el Anexo II tienen carácter interino de acuerdo a lo previsto en el artículo 20 de la Ley nº 6903 (Estatuto de los Trabajadores de la Salud).

@@ -1,0 +1,1 @@
+Art. 2º - Con vigencia al 1º de julio de 2010, suprímanse de las estructuras y cobertura de cargos del Ministerio de Salud Pública, aprobadas por Decreto nº 2364/08, sus modificatorios y ampliatorios, los cargos y funciones correspondientes al Programa CUCAI – Salta.

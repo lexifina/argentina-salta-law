@@ -1,0 +1,1 @@
+Art. 4º - Con igual vigencia, incorpórase a la cobertura de la planta de cargos, los cargos cuya ubicación escalafonaria y denominación se consignan en el Anexo III que forma parte del presente decreto.

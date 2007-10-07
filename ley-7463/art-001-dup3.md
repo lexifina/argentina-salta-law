@@ -1,0 +1,1 @@
+Artículo 1º - Con vigencia al 1º de julio de 2010, créase el Centro Único de Coordinación de Ablación e Implantes de Salta – CUCAI, con dependencia orgánica de la Secretaría de Servicios de Salud del Ministerio de Salud Pública, quien será la autoridad de aplicación de las normas vigentes en la especialidad.

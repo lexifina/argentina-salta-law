@@ -1,0 +1,1 @@
+Art. 3º - Apruébanse la Estructura Orgánica y Cobertura de Cargos del Centro Único de Coordinación de Ablación e Implantes de Salta – CUCAI, con dependencia orgánica de la Secretaría de Servicios de Salud del Ministerio de Salud Pública, las que como Anexos I y II, forman parte del presente decreto.
