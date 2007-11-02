@@ -1,0 +1,1 @@
+Art. 5º - Será requisito indispensable para designar el Revisor que controle el cumplimiento de lo establecido en el artículo Nº 1 de la Ley, que el profesional matriculado esté habilitado, de acuerdo a lo prescrito en el Artículo 11º del Dto. Nacional 1338/96, debiendo además acreditar experiencia en seguridad.

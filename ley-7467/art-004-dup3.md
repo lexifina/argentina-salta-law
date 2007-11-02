@@ -1,0 +1,1 @@
+Art. 4º - La documentación del Estudio de Seguridad, solamente tendrá valor cuando además de la visación legal obligatoria, tenga la constancia de la verificación con la firma del Revisor designado por el Consejo Profesional de Agrimensores, Ingenieros y Profesiones Afines.

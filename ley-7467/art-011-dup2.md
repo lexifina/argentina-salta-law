@@ -1,0 +1,1 @@
+Art. 11º - El Municipio competente ordenará la paralización de toda construcción de Edificios o Instalaciones de Uso Público iniciados luego de la fecha de vigencia de este decreto, que no cuenten con el Estudio de Seguridad firmado por el Revisor según lo establecido en el artículo 4º del presente decreto.

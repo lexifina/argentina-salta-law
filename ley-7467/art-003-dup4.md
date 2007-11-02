@@ -1,0 +1,1 @@
+Art. 3º - Facúltase al Consejo Profesional de Agrimensores, Ingenieros y Profesiones Afines a establecer los contenidos mínimos necesarios para la documentación del Estudio de Seguridad que permitan verificar el cumplimiento del artículo 1º de la Ley.

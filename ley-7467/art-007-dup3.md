@@ -1,0 +1,1 @@
+Art. 7º - En el municipio que exista ordenanza municipal relacionada a la seguridad, se deberá tomar en cuenta los criterios más exigentes, a no ser que el municipio apruebe la justificación técnica que inhiba lo dicho precedentemente, para poder modificar mínimos establecidos por las normas.
