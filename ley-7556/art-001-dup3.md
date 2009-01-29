@@ -1,0 +1,1 @@
+Artículo 1º - Facúltase a Fiscalía de Estado a promover juicio de expropiación de una fracción de la Matrícula Nº 145723, hoy 156980, del departamento Capital con destino a la adjudicación en venta a través de la Subsecretaría de Tierra y Hábitat.

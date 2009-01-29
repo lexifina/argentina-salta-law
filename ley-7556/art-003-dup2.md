@@ -1,0 +1,1 @@
+Art. 3º - El gasto que demande el cumplimiento del presente se imputará al Curso de Acción: 091160060100 – Cuenta Objeto: 123111.1000 – Ejercicio 2009, correspondiente a Ministerio de Finanzas y Obras Públicas.
