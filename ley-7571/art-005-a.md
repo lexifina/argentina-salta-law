@@ -1,0 +1,2 @@
+Art. 5º - A tales efectos, la sociedad podrá constituir filiales y subsidiarias y participar en otras sociedades y/o asociaciones, cuyo objeto sea conexo y/o complementario. Asimismo, tendrá plena capacidad jurídica para adquirir derechos y contraer obligaciones y ejercer todos los actos que no le sean prohibidos por las leyes, este Estatuto y toda norma que le sea expresamente aplicable.
+Título III: Del Capital Social y las Acciones

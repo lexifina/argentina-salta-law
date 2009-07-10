@@ -1,0 +1,1 @@
+Artículo 1º - Dispónese la constitución de la Compañía Salteña de Agua y Saneamiento S.A. (CoSAySa), bajo la forma de Sociedad Anónima prevista en la Ley de Sociedades Comerciales, con las particularidades que se establecen en su Estatuto y las dispuestas en el presente instrumento.

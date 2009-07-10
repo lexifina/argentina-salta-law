@@ -1,0 +1,1 @@
+Art. 8º - Las acciones podrán ser documentadas en títulos escriturales. Los títulos accionarios y los certificados provisorios que se emitan contendrán las menciones previstas en los Artículos 211 y 212 de la Ley Nº 19.550 (t.o. 1984).

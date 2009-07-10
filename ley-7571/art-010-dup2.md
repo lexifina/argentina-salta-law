@@ -1,0 +1,1 @@
+Art. 10 - Se podrán emitir títulos representativos de más de una acción. Las limitaciones a la propiedad y a la transmisibilidad de las acciones deberán constar en los títulos provisorios o definitivos que la Sociedad emita.

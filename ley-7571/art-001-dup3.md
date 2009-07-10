@@ -1,0 +1,1 @@
+Artículo 1º - La Sociedad se denomina “Compañía Salteña de Agua y Saneamiento Sociedad Anónima” (CoSA y Sa). Se regirá por estos Estatutos y por lo previsto en el Capítulo II, Sección V, Artículos 163 a 307 de la Ley Nº 19.550 (t.o. 1.984).
