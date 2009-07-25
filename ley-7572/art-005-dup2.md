@@ -1,0 +1,2 @@
+Art. 5º — El PODER EJECUTIVO NACIONAL, cada una de las Provincias adheridas y los Municipios beneficiarios, deberán
+establecer mecanismos de control que aseguren la transparencia en la utilización de las remesas y su destino a alguna de las finalidades de mejora de infraestructura de las establecidas en el artículo 1º del presente, vigilando el cumplimiento de la prohibición de utilización en gastos corrientes establecida en el citado artículo.

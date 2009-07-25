@@ -1,0 +1,1 @@
+Art. 2º — Destínase al fondo creado en el artículo 1º del presente el TREINTA POR CIENTO (30%) de las sumas que el Estado Nacional efectivamente perciba en concepto de derechos de exportación de soja, en todas sus variedades y sus derivados.
