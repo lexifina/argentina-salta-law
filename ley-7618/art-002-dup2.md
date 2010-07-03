@@ -1,0 +1,1 @@
+Art. 2º.- Integración. El COFELESA se integrará con los miembros de las Comisiones de Salud o su equivalente, cualquiera sea su denominación, del Honorable Senado de la Nación, de la Honorable Cámara de Diputados de la Nación, de cada una de las Legislaturas Provinciales y de la Ciudad Autónoma de Buenos Aires, sean unicamerales o bicamerales.
