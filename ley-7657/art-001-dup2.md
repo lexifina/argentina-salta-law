@@ -1,0 +1,2 @@
+Artículo 1º - Dispónese la constitución de la sociedad “Hospital Público Materno Infantil Sociedad del Estado”, dentro del régimen de la Ley Nº 6261, la que tendrá por objeto la prestación de los servicios de salud del Hospital Público Materno Infantil y todos sus servicios dependientes, con un perfil perinatal (materno Neonatal) e infantil, con una fuerte
+preponderancia en las áreas gineco obstétrica, neonatal y pediátrica, priorizando la atención de pacientes carenciados, sin obra social.
