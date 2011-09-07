@@ -1,0 +1,2 @@
+ARTÍCULO 9. — Aquellas instalaciones que hayan sido aprobadas por la autoridad de aplicación para el fin específico de realizar las mezclas, deberán adquirir los productos definidos en el artículo 5º, exclusivamente a las plantas habilitadas a ese efecto por la autoridad de aplicación. Asimismo deberán cumplir con lo establecido en el artículo 15, inciso 4.
+La violación de estas obligaciones dará lugar a las sanciones que establezca la referida autoridad de aplicación.

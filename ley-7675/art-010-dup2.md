@@ -1,0 +1,1 @@
+ARTÍCULO 10. — La autoridad de aplicación establecerá los requisitos y condiciones para el autoconsumo, distribución y comercialización de biodiesel y bioetanol en estado puro (B100 y E100), así como de sus diferentes mezclas.
