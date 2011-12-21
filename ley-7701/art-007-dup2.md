@@ -1,0 +1,7 @@
+Artículo 7º.- La autorización para construir Parques o Areas Industriales será otorgada por el Poder Ejecutivo Provincial, en base a:
+Un "Estudio de Factibilidad y Rentabilidad para Parques Industriales y/o Areas Industriales", el cual será evaluado por la Autoridad de Aplicación, quien a tal fin podrá solicitar la colaboración de Organismos específicos de la Administración Provincial y deberá contar con la intervención del área específica del Ministerio de Ambiente y Producción Sustentable, en relación a la aplicación de lo
+dispuesto por la normativa ambiental pertinente.
+El Estudio al cual hace referencia, deberá contar con el visto bueno del ente, quien deberá remitirlo al Ministerio de Ambiente y Producción Sustentable para su aprobación mediante resolución. Una vez obtenida la aprobación, los interesados deberán presentar el Proyecto Ejecutivo. En la presentación del Estudio de Factibilidad y del Proyecto Ejecutivo deberán observarse los requisitos previstos en el Anexo Técnico el cual forma parte integrante de la presente
+Reglamentación.
+Déjase establecido que una vez determinada la viabilidad técnica, económica y financiera por parte de la Autoridad de Aplicación y del Ministerio de Ambiente y Producción Sustentable, se otorgará la autorización definitiva mediante decreto.
+La ampliación o modificación de Parques o Áreas Industriales ya reconocidos deberán cumplir los requisitos establecidos en el presente artículo.
