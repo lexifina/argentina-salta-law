@@ -1,0 +1,1 @@
+Art. 2º - A partir de la primera etapa de implementación del nuevo Código Procesal Penal la Fiscalía de Primera Instancia con actuación en el Juzgado de Cafayate, cumplirá además funciones como Fiscalía Penal con el alcance que indique la reglamentación de la Procuración General.
