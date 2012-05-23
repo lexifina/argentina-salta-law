@@ -1,0 +1,1 @@
+Art. 6º — Comuníquese, publíquese, dese a la Dirección Nacional del Registro Oficial y archívese. — KIRCHNER. — Alberto A. Fernández. — Aníbal D. Fernández. — Alicia M. Kirchner. — Alberto J. B. Iribarne. — Jorge. E.Taiana. — Nilda C.Garré. — Julio M. De Vido. — Felisa Miceli. — Ginés M. González García.

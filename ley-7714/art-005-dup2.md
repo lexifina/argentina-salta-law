@@ -1,0 +1,1 @@
+Art. 5º — Dése cuenta al HONORABLE CONGRESO DE LA NACIÓN.
