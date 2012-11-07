@@ -1,0 +1,1 @@
+ARTÍCULO 43º.- PERSONAL RETIRADO: El uso de la denominación jerárquica para el personal retirado, está autorizado en los casos en que ocupe cargos públicos, nacionales o provinciales, por nombramientos o elección.

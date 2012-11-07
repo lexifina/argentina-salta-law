@@ -1,0 +1,2 @@
+ARTÍCULO 40º.- SUCESIÓN ACCIDENTAL EN EL MANDO: El personal policial podrá ser destinado a desempeñar funciones del grado inmediato superior. La sucesión accidental en el mando, cuando por cualquier circunstancia el titular no pueda ejercerlo, se ejerce de inmediato por el superior jerárquico que sigue al titular; y a la igualdad de grado, por el más antiguo. En cualquier
+caso, la superioridad debe confirmar o modificar los reemplazos, y por decisión fundada puede apartarse de las reglas de sucesión expuestas precedentemente.

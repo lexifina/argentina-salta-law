@@ -1,0 +1,1 @@
+ARTÍCULO 11º.- PROTECCION DEL MEDIO AMBIENTE: La participación en la protección del medio ambiente y actividades rurales se circunscribe a la prevención y represión de delitos o contravenciones. En otros casos, se dará intervención al organismo competente.

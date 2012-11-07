@@ -1,0 +1,1 @@
+ARTÍCULO 29º .- ESTADO POLICIAL: El Estado Policial acordado con las formalidades establecidas en la Ley Orgánica de la Policía de Salta, la Ley del Personal Policial y en este Reglamento, crea para el personal policial, obligaciones y derechos.

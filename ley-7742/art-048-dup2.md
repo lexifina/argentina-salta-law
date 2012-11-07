@@ -1,0 +1,1 @@
+ARTÍCULO 48º.- DESTINOS: El personal en situación de actividad desempeñará tareas en los destinos que fije la Jefatura, no pudiendo ser alterados éstos, sin previo conocimiento y autorización de la misma. El régimen de cambio de destinos será reglamentado por Jefatura de Policía, con la homologación del Ministerio de Seguridad.

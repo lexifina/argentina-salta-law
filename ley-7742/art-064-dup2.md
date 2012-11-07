@@ -1,0 +1,1 @@
+ARTÍCULO 64º.- CARACTERÍSTICAS DE FUNCIONAMIENTO: Las deliberaciones de la Junta, tendrán el carácter de "secreto". El presidente de la misma sólo votará en caso de empate y no podrá reverse calificación alguna, salvo que se presenten nuevas pruebas documentadas para su estudio.

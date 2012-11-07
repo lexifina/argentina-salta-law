@@ -1,0 +1,6 @@
+Art. 6º - Comuníquese, publíquese en el Boletín Oficial y archívese.
+ANEXO
+REGLAMENTO GENERAL DE LA POLICÍA
+DE LA PROVINCIA DE SALTA
+TÍTULO I
+REGLAMENTO ORGÁNICO Y FUNCIONAL

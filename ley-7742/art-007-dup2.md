@@ -1,0 +1,1 @@
+ARTÍCULO 7°.- ACTUACION COORDINADA: Los procedimientos que realicen las Dependencias Policiales de otras áreas, vinculados con la investigación y prevención de los delitos relacionados con el tráfico de estupefacientes y trata de personas, deberán ser coordinadas con el área específica, a excepción de los casos de flagrancia.

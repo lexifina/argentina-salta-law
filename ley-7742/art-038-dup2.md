@@ -1,0 +1,1 @@
+ARTÍCULO 38º.- QUEJAS: Todo Policía que tuviere alguna queja que formular, la debe hacer conocer a aquel que la pueda remediar. Toda queja o disconformidad manifiesta que pueda influir en el normal cumplimiento del servicio, se considera falta, tanto más grave cuando mayor sea el grado del Policía que la inviste.

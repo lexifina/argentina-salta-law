@@ -1,0 +1,1 @@
+ARTÍCULO 12º.- CAMARAS DE SEGURIDAD: El monitoreo de seguridad en lugares públicos a través de cámaras y/o videocámaras y/o cualquier otro medio técnico análogo a los fines de prevenir el delito, será coordinado y regulado por el Ministerio de Seguridad, que se encuentra facultado a dictar las disposiciones necesarias a tal efecto.

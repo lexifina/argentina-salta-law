@@ -1,0 +1,1 @@
+ARTÍCULO 54º.- MANIFESTACIÓN ESPECIAL: El personal que adquiera bienes cuyo monto exceda el equivalente a los haberes percibidos durante los últimos doce (12) meses, deberá comunicar a la superioridad el detalle de los mismos y forma de compra.

@@ -1,0 +1,1 @@
+ARTÍCULO 37º.- PAUTAS DE DISCIPLINA: Todo Policía debe mantener sobre sus subordinados una severa disciplina; se abstendrá de mostrar preferencias hacia alguno tratando de proceder siempre con equidad y justicia.

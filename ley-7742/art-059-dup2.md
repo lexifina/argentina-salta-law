@@ -1,0 +1,1 @@
+ARTÍCULO 59º.- DOBLE INSTANCIA: Las fojas de calificación serán calificadas por los superiores directos siguiendo la escala jerárquica que corresponda. Siempre que sea posible las fojas de concepto deberán ser calificadas por lo menos en dos instancias.

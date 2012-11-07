@@ -1,0 +1,1 @@
+ARTÍCULO 58º.- PERIODICIDAD: Las fojas de calificación serán formuladas al personal superior y subalterno una vez al año con fecha 1º de julio, y serán remitidas dentro de los siete (7) días siguientes a la Dirección General de Recursos Humanos.

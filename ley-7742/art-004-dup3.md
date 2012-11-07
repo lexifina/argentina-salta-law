@@ -1,0 +1,1 @@
+Art. 4º - Déjase establecido que continúan vigentes las normas reglamentarias referidas a los actuales Regímenes de Promociones Policiales (Decreto N° 248/75) y Licencias Policiales (Decretos N° 1.950/77, N° 759/86 y N° 2.875/97).

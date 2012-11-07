@@ -1,0 +1,1 @@
+ARTÍCULO 14°.- PROYECTOS DE PRESUPUESTO: Anualmente Jefatura de Policía, a través de las áreas específicas, elaborará y elevará al Ministerio de Seguridad el proyecto de presupuesto, atendiendo a las necesidades relevadas para el cumplimiento de la misión y funciones institucionales.

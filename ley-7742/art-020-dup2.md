@@ -1,0 +1,1 @@
+ARTÍCULO 20°.- RANGOS INFERIORES: La Policía de Salta se encuentra facultada para determinar los niveles de organización de los rangos inferiores a los establecidos en el Artículo 40º de la Ley Nº 7.742. Podrá determinar la estructura de cada una de las dependencias y sus reglamentos, lo que será homologado por el Ministerio de Seguridad.

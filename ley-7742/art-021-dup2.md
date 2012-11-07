@@ -1,0 +1,2 @@
+ARTÍCULO 21°.- UNIDADES DE ORDEN PÚBLICO: Las Unidades de Orden Público estarán conformadas por Comisarias de nivel I y II, Sub Comisarias, Destacamentos y Puestos Policiales.
+La creación, supresión, recategorización de las mismas se formalizará por resolución de Jefatura de Policía homologadas por el Ministerio de Seguridad, que se regirá conforme se determine en un instructivo que considere aspectos operativos, sociales, económicos, culturales, históricos, de demanda estratégica, registro estadístico y recursos necesarios.

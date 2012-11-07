@@ -1,0 +1,1 @@
+Art. 2º - Establécese como Autoridad de Aplicación de la Ley N° 7.742 y su respectiva reglamentación al Ministerio de Seguridad de la Provincia, quien queda facultado para dictar las normas complementarias y aclaratorias necesarias para la aplicación e implementación tanto de la ley como de su reglamentación.

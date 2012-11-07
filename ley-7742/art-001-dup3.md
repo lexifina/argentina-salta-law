@@ -1,0 +1,1 @@
+Artículo 1º - Apruébase la estructura orgánico - funcional de la Policía de la Provincia cuyo organigrama, reglamentario del artículo 29 de la Ley N° 7.742, se incorpora como anexo y forma parte del presente decreto.

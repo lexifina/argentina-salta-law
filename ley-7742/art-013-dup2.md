@@ -1,0 +1,1 @@
+ARTÍCULO 13º.- HALLAZGOS DE COSAS PERDIDAS: En los supuestos de hallazgos de cosas perdidas o abandonadas, se iniciará un expediente de carácter administrativo, según el procedimiento que determine Jefatura de Policía.

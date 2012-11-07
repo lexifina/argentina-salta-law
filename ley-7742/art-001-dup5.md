@@ -1,0 +1,4 @@
+ARTÍCULO 1°.- FIN PRINCIPAL: La Policía de la Provincia de Salta tiene como fin principal mantener el orden público, preservar la seguridad pública y prevenir el delito. Es representante y depositaria de la fuerza pública, podrá hacer uso de la misma para el cumplimiento de sus funciones. Asiste al Gobernador en los términos del Artículo 144º de la Constitución de la Provincia.
+En ejercicio de tal prerrogativa, brinda la cobertura de seguridad necesaria para que las autoridades nacionales, provinciales y municipales ejerzan sus funciones dentro del marco de competencias asignado por la normativa vigente, sin que ello signifique un menoscabo en el cumplimiento del fin principal de la Policía y en función de los recursos disponibles.
+El uso de la fuerza pública y la defensa de terceros seguirán los lineamientos establecidos en el
+Artículo 10º de la Ley 7.742, en el Artículo 5º de la presente reglamentación y demás disposiciones complementarias.

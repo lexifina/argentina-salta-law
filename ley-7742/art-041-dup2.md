@@ -1,0 +1,1 @@
+ARTÍCULO 41º.- EFECTOS: La superioridad jerárquica de grado y de cargo, además del ejercicio de las obligaciones y derechos inherentes a las mismas entraña la facultad de imponer en forma directa e inmediata las sanciones disciplinarias previstas por esta reglamentación.

@@ -1,0 +1,4 @@
+ARTÍCULO 24°.- REGLAMENTO DE DIRECCIONES GENERALES Y SUS DEPENDENCIAS: Las funciones y atribuciones de las Direcciones Generales y de los órganos que le dependen, se determinarán en los reglamentos orgánicos y funcionales de cada una de ellas. En dichos reglamentos se incluirán las secciones, oficinas y puestos policiales. Cada Dirección General debe elaborar su reglamento orgánico y funcional, en un plazo de ciento ochenta días desde la aprobación de la presente, los que serán homologados por la Secretaría de Seguridad. Los mismos tendrán una revisión cada dos años, debiendo los Directores Generales elevar el proyecto de modificación y/o actualización para su análisis y aprobación. La Secretaría de Seguridad tiene la facultad de introducir modificaciones cuando lo considere oportuno.
+TITULO II
+REGLAMENTO DE LA OFICINA GENERAL
+DE ASUNTOS INTERNOS

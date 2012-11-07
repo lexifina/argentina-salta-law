@@ -1,0 +1,1 @@
+ARTÍCULO 53º.- DECLARACIÓN JURADA - ACTUALIZACIÓN: Esta declaración será actualizada cuando la Jefatura lo considere necesario, en cuyo caso la manifestación abarcará desde la fecha en que se formuló la anterior, aun cuando en el momento en que se haga el bien no se poseyera por venta, traspaso o cualquier otro título, aclarando dicha circunstancia documentadamente.

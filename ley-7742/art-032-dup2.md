@@ -1,0 +1,1 @@
+ARTÍCULO 32º.- VIA JERÁRQUICA - EXCEPCIÓN: El procedimiento ordinario para el cumplimiento de toda orden del servicio es la vía jerárquica. Cuando no sea tramitada por ese medio, el que la recibe la hará conocer a su superior inmediato antes de darle cumplimiento, con excepción de los casos urgentes en que lo informará inmediatamente después de haberla obedecido.

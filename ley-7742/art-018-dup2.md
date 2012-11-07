@@ -1,0 +1,1 @@
+ARTÍCULO 18°.- TIEMPOS MINIMOS: Los tiempos mínimos de permanencia en cada uno de los grados para el ascenso a la jerarquía inmediata superior, las adecuaciones y recategorizaciones que deban producirse dentro del orden jerárquico y en cada estamento, serán determinados por el Ministerio de Seguridad.

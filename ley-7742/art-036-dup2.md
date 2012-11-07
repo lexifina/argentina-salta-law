@@ -1,0 +1,1 @@
+ARTÍCULO 36º.- DEBER DE CONOCIMIENTO PERSONAL: El superior debe conocer personalmente a todos sus subordinados y formarse una idea de su personalidad y de la preparación que posean, a los fines de logar una correcta comunicación y un propicio ambiente de trabajo.

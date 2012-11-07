@@ -1,0 +1,1 @@
+Art. 3º - Deróguense expresamente los Artículos 1° al 435° inclusive del Decreto 3.957/69 "Reglamentación de la Ley Orgánica Policial", Decreto 1.168/78, Decreto 2.936/97, Decreto 1.298/00 y toda otra disposición que se oponga al presente.

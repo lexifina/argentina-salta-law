@@ -1,0 +1,1 @@
+ARTÍCULO 26º.- RECEPCIÓN DE DENUNCIAS: Para el cumplimiento de sus funciones, la Oficina General de Asuntos Internos recibirá denuncias de personas físicas u organizaciones civiles, por escrito o verbalmente, y también iniciará la investigación cuando se tenga noticias, por cualquier medio posible y sin ningún tipo de restricción, de la comisión de las faltas aludidas.

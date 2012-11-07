@@ -1,0 +1,1 @@
+ARTÍCULO 34º.- ACLARACIONES: El personal no debe hacer observaciones sobre las órdenes que reciba; pero puede pedir aclaraciones cuando no las haya entendido; sin embargo, cuando crea que la ejecución de una orden recibida puede perjudicar el servicio a causa de circunstancias ignoradas por el superior, debe advertírselo respetuosamente.

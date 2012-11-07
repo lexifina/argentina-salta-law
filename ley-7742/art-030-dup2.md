@@ -1,0 +1,1 @@
+ARTÍCULO 30º.- SUBORDINACIÓN: Las obligaciones y derechos establecidos en la Ley Orgánica, Ley del Personal Policial y disposiciones complementarias, crean entre los miembros del personal una situación de dependencia basada en la escala jerárquica, la antigüedad y el cargo.

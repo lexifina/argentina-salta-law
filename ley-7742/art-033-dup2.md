@@ -1,0 +1,1 @@
+ARTÍCULO 33º.- REITERACIÓN: El personal que reciba una orden contraria a otra que debe ejecutar o que impida o demore su cumplimiento, hará presente esta circunstancia al superior de quien la recibe y, si este la reitera, obedecerá informando al superior que emitió la orden anterior.

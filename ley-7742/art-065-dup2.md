@@ -1,0 +1,1 @@
+ARTÍCULO 65º.- SENTIDO Y REGISTRO DEL VOTO: En las planillas de Calificaciones que confeccione la Junta se dejará constancia del voto de cada uno de sus miembros, cuando hayan votos desfavorables serán fundados.

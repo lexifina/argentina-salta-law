@@ -1,0 +1,1 @@
+ARTÍCULO 35º.- ORDENES Y RESPONSABILIDADES: El superior es responsable de las consecuencias de las órdenes que imparte. Todo subalterno y subordinado es responsable de la exacta ejecución de las órdenes que reciba, y es su obligación dar cuenta al superior que las haya impartido, de la manera como han sido cumplidas o de los obstáculos que hayan impedido su cumplimiento.

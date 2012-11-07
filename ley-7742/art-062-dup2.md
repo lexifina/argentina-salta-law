@@ -1,0 +1,1 @@
+ARTÍCULO 62º.- NULIDAD: Los nombramientos y ascensos del personal policial que se hicieran contrariando la ley o sus disposiciones reglamentarias, serán nulos y sin ningún efecto, haciéndose responsables a todos los que hubieran participado.

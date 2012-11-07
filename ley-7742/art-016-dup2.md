@@ -1,0 +1,1 @@
+ARTÍCULO 16°.- PERSONAL CIVIL: El personal civil designado para ocupar cargos dentro de la estructura orgánica deberá contar con titulo de grado afín a la función asignada, con una antigüedad no menor a cinco años en el ejercicio de la profesión y demás requisitos establecidos en el Artículo 46º incisos a), b), c) y d) del presente reglamento.
