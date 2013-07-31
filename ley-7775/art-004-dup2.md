@@ -1,0 +1,1 @@
+Art. 4º.- El presente decreto será refrendado por la señora Ministra de Justicia y el señor Secretario General de la Gobernación.
