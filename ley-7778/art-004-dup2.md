@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. EMPRENDIMIENTOS EN LA PROVINCIA: Sin perjuicio de lo expuesto en el artículo anterior, y en caso de contar la Provincia con planes de urbanización y/o construcción de viviendas que puedan ser financiados por el Fideicomiso, la Provincia podrá presentar dicho plan al Comité Ejecutivo por escrito, para su análisis.

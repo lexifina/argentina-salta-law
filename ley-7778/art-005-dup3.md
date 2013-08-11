@@ -1,0 +1,1 @@
+Art. 5º - El gasto que demande el funcionamiento de la Unidad creada por el presente, se imputará a la partida correspondiente del Ministerio de Economía, Infraestructura y Servicios Públicos, ejercicio vigente.

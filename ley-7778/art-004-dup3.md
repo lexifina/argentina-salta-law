@@ -1,0 +1,1 @@
+Art. 4º - Desígnase a partir de la fecha del presente, al Dr. Rubén Fortuny DNI Nº 18.217.246, en el cargo de Director Ejecutivo de la Unidad de Coordinación Pro.Cre.Ar, con una remuneración idéntica a la prevista en el Decreto Nº 233/08.

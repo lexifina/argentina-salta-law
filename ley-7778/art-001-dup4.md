@@ -1,0 +1,1 @@
+Artículo 1º - Créase la Unidad de Coordinación del Programa de Crédito Argentino del Bicentenario para la Vivienda Única Familiar (PRO.CRE.AR), con dependencia del Ministerio de Economía, Infraestructura y Servicios Públicos, la que estará a cargo de un Director, con el objeto de realizar las gestiones y operatorias relacionadas con el funcionamiento y ejecución del mismo.
