@@ -1,0 +1,2 @@
+Artículo 11º.- (Art. 11° Ley 7800).
+El libro de Quejas, Agradecimientos, Sugerencias y Reclamos de los establecimientos privados, será foliado y sellado por la Secretaría de Defensa del Consumidor. En las dependencias públicas será el organismo jerárquico superior quien entregue foliado y sellado dicho libro. A solicitud del usuario deberá entregarse copia gratuita del folio donde conste el reclamo.

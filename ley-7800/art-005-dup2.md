@@ -1,0 +1,3 @@
+Artículo 5º.- (Art. 5° Ley 7.800).
+a) Quedan excluidos los establecimientos referidos en el artículo 1º de la presente reglamentación, aplicándose los mismos criterios allí expuestos.
+b) Los establecimientos y dependencias, cualquiera sea el sistema operativo de turnos que establezcan, deberán otorgar en todos los casos, constancia de turnos en donde conste la fecha y la hora de emisión del ticket, el número de turno y el nombre o logo del establecimiento que lo emite. c) En los casos en que la dependencia otorgare turnos, indicando la fecha y la hora en la cual el solicitante será atendido, el plazo de espera se computará desde el inicio del referido turno de atención.

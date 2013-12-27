@@ -1,0 +1,3 @@
+Artículo 6°.- (Art. 6º Ley 7.800).
+La constancia documentada del tiempo de espera superior a los 30 (treinta) minutos, deberá estar firmada y sellada por el establecimiento respectivo, e indicará la fecha y hora del inicio del turno, como así también la fecha y la hora en que se realizó la atención o en la cual el consumidor o usuario se retiró de la dependencia sin recibir la atención.
+En caso de que el establecimiento rehusare otorgar la constancia en la forma señalada, el consumidor dejará constancia escrita de ello en libro de quejas previsto en el Capítulo III de la ley, sirviendo la copia de la misma como constancia documentada.

@@ -1,0 +1,2 @@
+Artículo 8°.- (Art. 8° Ley 7.800).
+En los casos de imposibilidad, debidamente fundada ante la Autoridad de Aplicación, de adaptar en el plazo de seis (6) meses, sus instalaciones a las exigencias del artículo 7º inciso c de la ley, y contar con sanitarios de acceso libre y gratuito en el mismo establecimiento, deberán facilitarlo en las mismas condiciones en otro establecimiento en un radio no mayor a los 100 metros, respetando el correspondiente turno.

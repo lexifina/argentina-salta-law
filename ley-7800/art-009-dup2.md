@@ -1,0 +1,5 @@
+Artículo 9°.- (Art. 9° Ley 7800).
+Los carteles en los cuales se deberán especificar los medios, direcciones y teléfonos para realizar las denuncias por las prácticas abusivas, deberán colocarse en los lugares y/o ventanillas de pago, accesos
+y/o ingresos, y tendrán como mínimo una medida de 31 cms. x 43 cms., con letras de al menos 1,5 cms. de altura, conteniendo la siguiente leyenda: "Sr./a. consumidor/a: Se considera "práctica abusiva" y contraria al "trato digno" en locales de acceso a la atención masiva al público a: a) La espera en condiciones de incomodidad que obliga a soportar las inclemencias climáticas. b) La falta de sanitarios de acceso libre y gratuito a disposición de los concurrentes. c) El tiempo de espera superior a los sesenta (60) minutos para ser atendido, aún cuando se provea de asientos, existan instalaciones sanitarias y el orden de atención sea según talón numerado. Denuncie su incumplimiento en la Secretaría de Defensa del Consumidor, calle España N° 1.350 de la ciudad de Salta. Tel. 0800 555 3332. Conf. Art. 9 ley N° 7.800".
+Capítulo III
+Del libro de Quejas, Agradecimientos, Sugerencias y Reclamos
