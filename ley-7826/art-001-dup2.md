@@ -1,0 +1,1 @@
+Artículo 1º - Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión de fecha 8 de julio del corriente año, ingresado como Expediente N° 90-22.607/14 el día 16 de julio de 2.014, vetándose el artículo 6°.
