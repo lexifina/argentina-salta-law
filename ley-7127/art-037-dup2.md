@@ -1,0 +1,1 @@
+Artículo 37º el texto “y/o los que resulten de contribuyentes forzosos o de derecho” y “de las municipalidades de la Provincia de Salta”; y el término “sus” que se antepone a la frase: municipalidades idénticas exenciones.

@@ -1,0 +1,2 @@
+Art. 13º.- (Art. 34º Ley 7.127).
+Los empleados de planta permanente del I.P.S., se encuentran sujetos al Estatuto del Empleado Público Provincial Ley 5.546/80, y todas sus modificaciones y reglamentaciones. Asimismo será de aplicación el Decreto Nº 1.178/96, 2.489/96 y 4.118/97 (Régimen Escalafonario para agentes de la Administración General, Régimen de Licencias Justificaciones y Franquicias etc..).

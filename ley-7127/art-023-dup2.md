@@ -1,0 +1,3 @@
+Art. 23º la frase “haciendas paraestatales”.
+Art. 34, del primer párrafo, la frase “... y seguirán incorporados al Régimen del Escalafón vigente, para los empleados de las actividades de Seguros, Reaseguros, Capitalización y Ahorro y Préstamos para la vivienda, salvo que las convenciones colectivas de trabajo resuelvan en contrario”; del apartado b) la frase “...los derechos adquiridos de la carrera administrativa y...” y la palabra “...total...” posterior al término nivel; y el último párrafo “...Se crea una comisión compuesta por tres (3) afiliados que representa al conjunto de ellos, a efectos que tengan acceso a la información de los actos jurídicos, técnicos, administrativos y financieros del Instituto Provincial de Salud de Salta (I.P.S.)”.
+Artículo 35º, íntegro.

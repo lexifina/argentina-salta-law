@@ -1,0 +1,2 @@
+Art. 10 inciso i) íntegro.
+Art. 16º, el segundo párrafo “Cuando por causas de ausencia, enfermedad, renuncia u otras de similar naturaleza se imposibilitare el ejercicio de las funciones de un director, el Poder Ejecutivo procederá a la designación de su reemplazante, siempre y cuando no fuere posible la designación del titular por demora u omisión de los organismos responsables de la presentación de las ternas pertinentes”.

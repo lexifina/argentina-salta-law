@@ -1,0 +1,4 @@
+Artículo 1.- (Art. 1º Ley 7.127).
+El Instituto Provincial de Salud de Salta (I.P.S.) es una Obra Social que se constituye y funciona por el aporte obligatorio de sus afiliados forzosos activos, pasivos y beneficiarios y la contribución patronal del Estado Provincial; y voluntario de sus afiliados adherentes; ello habilita a esta entidad a darse su propia organización administrativa, económica, financiera y dirección, y ejercer potestad reglamentaria, aunque sujeta a contralor del Estado Provincial.
+Como Obra Social Provincial, no se encuentra sujeta al contralor del "Estado Nacional", no integra "el Sistema Nacional del Seguro de Salud", no reviste la categoría de "Agente del Seguro de Salud", (ANSSAL), establecidos por las Leyes Nº 23.660, 23.661, 24.754 y 24.455 y sus respectivos Decretos Reglamentarios.
+Del Objeto del I.P.S.
