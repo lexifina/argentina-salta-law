@@ -1,0 +1,1 @@
+ARTÍCULO 2° — Finalidad. La presente ley tiene por finalidad capacitar en la atención primaria básica del paro cardiorrespiratorio para prevenir el acontecimiento de muertes evitables en el ámbito extrahospitalario a los estudiantes del nivel medio y del nivel superior.

@@ -1,0 +1,1 @@
+ARTÍCULO 5° — Integración de la Comisión RCP - Argentina. La Comisión RCP - Argentina estará integrada por un (1) representante del Ministerio de Educación, un (1) representante del Ministerio de Salud, un (1) representante del Consejo Federal de Educación y un (1) representante del Consejo Federal de Salud, los que serán designados en carácter ad honórem.
