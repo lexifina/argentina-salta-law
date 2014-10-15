@@ -1,0 +1,1 @@
+Artículo 1° - Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión de fecha 4 de septiembre del corriente año, ingresado como Expedientes N° 91-32.757/13, 91- 32.428/13 y 91-32.430/13 (acumulados), en fecha 18 de septiembre de 2.014, vetándose en el artículo 1° la frase "conforme al croquis Anexo".
