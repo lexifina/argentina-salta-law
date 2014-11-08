@@ -1,0 +1,1 @@
+Artículo 7°.- Procedimiento de Juzgamiento.- Las sanciones establecidas a las conductas descriptas en la Ley serán juzgadas y aplicadas conforme al procedimiento establecido en la Ley Nº 6.913, sus normas modificatorias y complementarias, y al Decreto Nº 2.531/06, o la normativa que en el futuro la modifique o reemplace.
