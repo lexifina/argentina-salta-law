@@ -1,0 +1,1 @@
+ARTICULO 1° — Sustitúyese el artículo 5° de Capítulo 2 del Anexo II “Régimen General de Sanciones por Infracciones Laborales” al Pacto Federal del Trabajo, ratificado por la ley 25.212, el que quedará redactado de la siguiente manera:

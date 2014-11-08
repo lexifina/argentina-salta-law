@@ -1,0 +1,1 @@
+ARTICULO 2° — Sustitúyese el artículo 8° del Capítulo 4 “Disposiciones Comunes” del Anexo II al Pacto Federal del Trabajo, ratificado por la ley 25.212, el que quedará redactado de la siguiente manera:
