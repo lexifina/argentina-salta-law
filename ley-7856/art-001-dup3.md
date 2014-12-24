@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Apruébase la reglamentación de la Ley Nº 7856 de creación de la “Red de Apoyo Sanitario Intercultural e Interinstitucional para Pueblos Originarios” Sumaj Kausai (Buen Vivir), la que como Anexo forma parte integrante del presente.
