@@ -1,0 +1,1 @@
+ARTÍCULO 1.- El presente ESTATUTO ESCALAFÓN, será aplicado a todos los agentes viales provinciales, afiliados o no a la "Federación de Agentes Viales provinciales de la República Argentina" (F.A.V.P.R.A).

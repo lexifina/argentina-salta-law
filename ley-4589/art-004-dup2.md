@@ -1,0 +1,2 @@
+ARTÍCULO 4.- El personal que por razones de necesidad o fuerza mayor, la Dirección Provincial de Vialidad se vea precisada a designarlo en funciones accidentales y/o para desempeñar tareas transitorias, no podrá ocupar cargos ni plazas ni desempeñar o realizar las funciones previstas para estos cargos en cualquiera de las carreras que se establecen en el presente Estatuto Escalafón.-
+CAPÍTULO SEGUNDO: DE LA INTITULACIÓN
