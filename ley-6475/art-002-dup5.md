@@ -1,0 +1,1 @@
+Art. 2º.- El Poder Ejecutivo podrá, en el instrumento legal de otorgamiento del beneficio, establecer un adicional a los montos previstos en el artículo 1º del presente, a aquellos artistas que, por diversas circunstancias especiales, lo considere oportuno.

@@ -1,0 +1,1 @@
+Art. 4º.- El gasto que demande el cumplimiento de lo dispuesto precedentemente se imputará a Jurisdicción 4, Unidad de Organización 01, Partida Principal: Transferencias – Partida Parcial: Transferencias para financiar erogaciones corrientes.

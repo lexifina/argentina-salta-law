@@ -1,0 +1,2 @@
+Art. 13.- Deberá entenderse “por razones de fuerza mayor”, los fundamentos de excepción que se ajusten a la reglamentación vigente en la Provincia para el régimen de licencias.
+Para el cumplimiento de las obligaciones de colaborar se reconocerán como gastos de traslado, viáticos, gastos de terceros, etc, los que se originen como consecuencia de los viajes que se produzcan dentro de la Provincia, y desde ésta hacia el exterior. (Párrafo agregado por el Art 2 del Decreto Nº 1906/1989).-

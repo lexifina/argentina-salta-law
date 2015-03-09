@@ -1,0 +1,1 @@
+Art. 3º.- Modifícase el segundo párrafo del artículo 4º del Decreto Nº 700/88; dejándose establecido que los beneficios correspondientes al Mérito Artístico, en las diferentes disciplinas, serán reconocidas y liquidadas a partir de la fecha del respectivo decreto del Poder Ejecutivo que lo conceda, y a través de la Dirección de Administración del Ministerio de Educación.

@@ -1,0 +1,2 @@
+Art. 4º.- A partir de la puesta en vigencia de la presente reglamentación, el Jurado no podrá extender su mandato más allá de los ciento ochenta (180) días corridos desde la fecha de su integración.
+Los beneficios correspondientes al Mérito Artístico, en las diferentes disciplinas, serán reconocidas y liquidadas a partir de la fecha del respectivo decreto del Poder Ejecutivo que lo conceda, y a través de la Dirección de Administración del Ministerio de Educación. (Modificado por el Art 3 del Decreto Nº 1906/1989)
