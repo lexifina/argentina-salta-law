@@ -1,0 +1,1 @@
+Art. 3º - Con encuadre en los artículos 131, 133 y 144 inciso 4) de la Constitución Provincial y 8 de la Ley Nº 7483, propónese incorporar en el artículo 73 del proyecto de ley en tratamiento, la expresión “ejecución fiscal” en sustitución del término “apremio” excluido por la observación dispuesta en el artículo 1º.

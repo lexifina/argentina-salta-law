@@ -1,0 +1,1 @@
+Artículo 73.- Una vez firme la sanción de multa, la Autoridad de Aplicación remitirá copia certificada del acto administrativo que la aplicare y de las respectivas notificaciones al Señor Ministro para su remisión al Señor Fiscal de Estado para su conocimiento y trámite de ejecución fiscal.

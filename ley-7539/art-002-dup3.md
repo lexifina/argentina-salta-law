@@ -1,0 +1,1 @@
+Art. 2º - Déjase establecido que el órgano competente de aplicación de la Ley nº 7539 es la Supervisión de Fiscalización y Habilitación dependiente del Programa Farmacia de la Subsecretaría de Gestión de Salud.

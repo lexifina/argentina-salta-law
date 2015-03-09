@@ -1,0 +1,21 @@
+Artículo 41.- Requisitos para la Instalación de Botiquines de Farmacia
+Solicitud de Habilitación:
+Tendrá carácter de declaración jurada e indicará domicilio donde funcionará el establecimiento, datos personales del propietario y/o del responsable de la atención del establecimiento. Acompañará copias certificadas de las dos primeras hojas del documento nacional de identidad, Foto carnet de 4 x 4 del titular y del responsable del Botiquín de Farmacia, Certificado de Residencia, Certificado de Antecedentes Penales expedido por la Policía de la Provincia de Salta y constancia de pago de arancel correspondiente.
+La persona responsable de la atención del botiquín deberá acreditar Título Secundario, Título de Auxiliar de Farmacia y/o certificación de haber trabajado en tareas relacionadas con el manejo y dispensa de medicamentos, por un tiempo no menor a un año. Asimismo deberá aprobar una evaluación a efectos de verificar nociones y conocimientos básicos necesarios, que garanticen la dispensa responsable de especialidades medicinales a su cargo. La evaluación oral versará sobre el temario establecido en Anexo III, que forma parte de la presente reglamentación.
+Documentación a Presentar:
+1. Copia certificada de plano del local cuya superficie total no podrá ser inferior a 35 m2, aprobado por la Municipalidad y COPAIPA, firmado por el responsable y/o propietario del botiquín; certificado de bomberos y certificado de desinfección del local. Original de Croquis del local, en escala 1/50, indicando medidas de cada área, características de techos, paredes y pisos. Ambos deberán estar firmados y sellados por el titular y el responsable, colocando nombre y dirección del Botiquín de Farmacia.
+2. Fotocopias certificadas de Habilitación Municipal del Botiquín de Farmacia de conformidad con los rubros autorizados por el artículo 10 de la Ley 7.539, Constancia de Inscripción en Dirección General de Rentas de la Provincia y AFIP u organismo que en el futuro la reemplace.
+3. Declaración Jurada de Horario de Atención al Público.
+4. Copia certificada del Contrato de locación de servicios, debidamente sellado por ante la Dirección General de Rentas con firma certificada entre el titular y el responsable del Botiquín de Farmacia y/o alta temprana.
+5. Copia certificada de cédula parcelaria y/o contrato de locación entre el titular registral y el titular del botiquín de Farmacia, del inmueble donde funcionará el mismo, debidamente sellado por ante la Dirección General de Rentas, con firmas certificadas.
+Cumplimentados los requisitos solicitados, la Autoridad de Aplicación constatará la
+correspondencia de la documentación presentada.
+El local a habilitar deberá cumplir con las condiciones mínimas de higiene y seguridad que permitan una adecuada conservación de los medicamentos en existencia y normal atención al público. Los sanitarios deben contar con adecuadas condiciones de higiene y ventilación. Verificado el inmueble, se procederá al dictado del instrumento legal de aprobación de planta física.
+Aprobada la Planta Física se efectuará una segunda inspección en el local, a efectos de constatar el cumplimiento de Petitorio Mínimo de Botiquines de Farmacia, que como Anexo II forma parte del presente. Cumplidos los requisitos, se dictará el instrumento legal correspondiente para la habilitación al público, con vigencia anual.
+Una vez acordada la habilitación no se podrá introducir modificación alguna en la planta física, domicilio, denominación, titularidad, ni responsable, sin previo comunicado y autorización por parte de la Autoridad de Aplicación.
+El responsable deberá llevar un Libro Recetario habilitado y foliado por Autoridad de Aplicación donde se transcribirán diariamente y por orden numérico según fecha de dispensa, las recetas despachadas, registrando contenido, nombre y matrícula del profesional médico autorizante.
+Tanto el propietario como el responsable del funcionamiento del botiquín de farmacias, en caso de corresponder, son solidariamente responsables del cumplimiento de lo establecido en el presente artículo.
+El responsable del funcionamiento del Botiquín de Farmacia no podrá delegar sus funciones a terceros no autorizados por la Autoridad de Aplicación.
+TÍTULO III
+Farmacia Asistencial Institucional
+Capítulo I

@@ -1,0 +1,4 @@
+Artículo 1º - Conforme a lo establecido en los artículos 131 y 144 inciso 4) de la Constitución Provincial y 8 de la Ley Nº 7483, obsérvase parcialmente el proyecto de ley sancionado por las Cámaras Legislativas en sesión realizada el 25-11-08, ingresado en fecha 05-12-08 bajo Expediente Nº 91-20.366/08 Referente, mediante el cual se regula el Ejercicio de la Profesión y Actividad Farmacéutica en la Provincia de Salta, suprimiéndose, en carácter de veto parcial, lo siguiente:
+ Título II, Capítulo I, artículo 10: debe vetarse la frase “así como la venta por correspondencia, por procedimientos televisivos y por vía Internet”.
+ Título II, Capítulo II, artículo 24: deben vetarse las frases “Además deberán ser contribuyentes locales a los efectos de la tributación de impuestos” y “debiendo además ser contribuyentes locales a los efectos de la tributación de impuestos”.
+ Título X “Del Procedimiento” Artículo 73º: la palabra “apremio”.
