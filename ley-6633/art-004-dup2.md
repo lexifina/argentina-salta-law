@@ -1,0 +1,1 @@
+ARTÍCULO 4° — Para el mejor cumplimiento de las finalidades establecidas en la presente ley, la Secretaría de Acción Cooperativa podrá gestionar y recibir préstamos con cargo a los ingresos del Fondo de las instituciones crediticias del sistema bancario oficial.

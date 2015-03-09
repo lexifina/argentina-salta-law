@@ -1,0 +1,3 @@
+ARTÍCULO 6° — Establécese con carácter transitorio una contribución especial, que se aplicará en todo el territorio de la Nación, sobre los capitales de las cooperativas inscriptas en el registro pertinente de la Secretaría de Estado de Acción Cooperativa de la Nación, determinados de acuerdo con las disposiciones de la presente ley, al cierre de cada ejercicio económico y durante SIETE (7) períodos. La reglamentación fijará el procedimiento a seguir en los casos en que no se efectúen balances anuales. – (expresión "CINCO (5) períodos anuales" sustituida por expresión "SIETE (7) períodos anuales" por art. 73 de la Ley Nº 23.760 B.O. 18/12/1989).
+TÍTULO III
+LIQUIDACIÓN. BASE IMPONIBLE
