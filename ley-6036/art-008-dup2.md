@@ -1,0 +1,1 @@
+Art. 8º.- El cómputo del porcentaje determinado resultará de aplicación para el futuro, debiendo considerarse respecto del cubrimiento de las vacantes que se produzcan a partir de la aplicación del presente y procurando mantener una relación proporcional directa con la dotación de cada organismo.

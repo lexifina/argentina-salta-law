@@ -1,0 +1,1 @@
+Art. 5º.- El Ministerio de Bienestar Social de la Provincia, con las Secretarías de Estado de Seguridad Social y de Salud Pública, coordinará la intervención y participación que a ellas les corresponda en los asuntos de interés compartido.

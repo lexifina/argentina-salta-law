@@ -1,0 +1,1 @@
+Art. 4º.- El presente decreto será refrendado por los señores Ministros de Bienestar Social, de Gobierno, Justicia y Educación y de Economía y firmado por el señor Secretario General de la Gobernación y los señores Secretarios de Estado de Seguridad Social, de Salud Pública, de Gobierno, de Municipalidades, de Hacienda y Economía y de Educación y Cultura.
