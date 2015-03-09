@@ -1,0 +1,4 @@
+ARTÍCULO 2º.- En lo que concierne a las áreas referidas en el segundo párrafo del artículo precedente, en las que en el trámite de su respectivo concurso aún no se hubieren presentado ofertas a la fecha de entrada en vigencia de esta ley y hasta que se cumpla lo establecido en el Artículo 22, las Provincias en cuyos territorios se encuentren, tendrán participación necesaria en:
+a) La determinación del porcentaje de las regalías que, dentro de lo establecido por la
+legislación vigente, corresponda fijar; y
+b) El análisis y evaluación de las ofertas que se formulen y en la adjudicación que se efectúe. Dicha participación deberá efectivizarse dentro de los plazos y modalidades que determine la Autoridad de Aplicación de la Ley de Hidrocarburos Nº 17.319. Si se tratare de áreas compartidas entre dos o más Provincias y no existiere acuerdo, la decisión será tomada por la Autoridad de Aplicación antes aludida.

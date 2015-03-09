@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- Otórgase a YPF Sociedad Anónima permiso de exploración sobre la totalidad de las áreas que tienen asignadas para tal fin y que se detallan en el Anexo I-A y III de la presente, las que se regirán por los Artículos 16 y siguientes de la Ley Nº 17.319 y sus normas complementarias y reglamentarias, sin que resulte aplicable lo dispuesto en el Artículo 25 de dicha ley.
