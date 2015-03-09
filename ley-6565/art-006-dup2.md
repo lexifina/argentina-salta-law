@@ -1,0 +1,1 @@
+Art. 6- La habilitación definitiva para el funcionamiento de los equipos e instalaciones sólo será acordada por la correspondiente autoridad de Salud Pública cuando, mediante inspección, se hubiere verificado la seguridad de los equipos e instalaciones y la observancia de las demás disposiciones legales y reglamentarias sobre la materia.

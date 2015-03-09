@@ -1,0 +1,1 @@
+Art. 5º- Las personas a que se refiere el art. 4º deberán proporcionar a la correspondiente autoridad de Salud Pública con carácter de declaración jurada, los datos que dicha autoridad les requiera a los fines de este capítulo; también facilitarán el acceso de dicha autoridad a los equipos e instalaciones cuando ello les sea requerido.

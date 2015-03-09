@@ -1,0 +1,1 @@
+Art. 4º- Toda persona que, a la fecha del decreto, se desempeñe como responsable de una instalación de acuerdo con el art. 33 deberá solicitar su habilitación y la correspondiente inscripción en el registro catastral de la jurisdicción correspondiente dentro de los 180 días contados desde la publicación del presente decreto.

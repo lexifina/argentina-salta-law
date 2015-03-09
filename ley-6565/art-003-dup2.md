@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Sin perjuicio de lo dispuesto en el artículo 2 la autoridad nacional de Salud Pública podrá concurrir por sí para hacer cumplir o para verificar el cumplimiento de esta ley y de su reglamentación en cualquier parte del territorio de la Nación.
+La autoridad nacional de Salud Pública podrá también concertar con las provincias y con la Municipalidad de la Ciudad de Buenos Aires los acuerdos necesarios para proporcionar asistencia y cooperación a los fines de esta ley.
