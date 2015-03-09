@@ -1,0 +1,1 @@
+Artículo 1º - Apruébase el Reglamento de la Ley 7092 por la que se crea el Sistema Provincial de Documentación y Archivos (SIPADA), elaborado por la Comisión Redactora designada por Resolución Conjunta del Ministerio de Gobierno y Justicia Nº 235/02, Ministerio de Educación Nº 2066/02 y Secretaría General de la Gobernación Nº 446/02.

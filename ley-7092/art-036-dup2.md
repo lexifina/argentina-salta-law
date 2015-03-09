@@ -1,0 +1,3 @@
+ART. 36.- Los particulares que soliciten la exclusión de un documento del listado de eliminación, requiriendo o no su guarda, deberán presentar dentro de los quince (15) días corridos a contarse
+desde la última publicación, una nota a la Dirección de Archivo, indicando los motivos de su pedido. La presentación y la documentación respectiva serán reservadas hasta que el Consejo Ejecutivo se constituya y resuelva la cuestión. Tanto en el caso en que se decida la entrega del documento al particular para su guarda como en el caso en que se excluya el documento del expurgo disponiéndose su guarda permanente en el Archivo Histórico, se deberá labrar un Acta con intervención de Escribanía de Gobierno.
+(ARTÍCULO 35 DE LA LEY Nº 7092) ELIMINACIÓN DE DOCUMENTACIÓN

@@ -1,0 +1,3 @@
+ART. 20.- El documento, fondo o colección privada cuyo propietario no se encuentre adherido al SiPADA, podrá ser declarado por el Consejo Ejecutivo de valor histórico. En este caso el Consejo Ejecutivo queda habilitado a gestionar frente al propietario alguna forma de reproducción o transferencia de la información contenida, conviniendo las condiciones y el grado de
+confidencialidad. Como contrapartida el propietario podrá solicitar y recibir en forma gratuita el asesoramiento para el ordenamiento, conservación y restauración de documentación. Si así lo desea, también puede acceder a la inclusión de la referencia pertinente en los catálogos producidos por el Archivo Histórico.
+(ARTÍCULO 16 DE LA LEY Nº 7092) EXTRACCIÓN DEL TERRITORIO NACIONAL DEL PATRIMONIO DOCUMENTAL.

@@ -1,0 +1,2 @@
+ARTÍCULO 1º.- - a) El Sistema Provincial de Administración de Documentación y Archivos ( SiPADA) es una organización con facultades normativas, ejecutivas, de coordinación y de asesoramiento; integrando y coordinando operativamente las acciones vinculadas a la documentación proveniente de los tres (3) Poderes del Estado Provincial y de quienes se adhieran a la Ley Nº 7.092; estableciendo un flujo eficaz de información que sirva a las instituciones gubernamentales, a las intermedias y a los ciudadanos.
+(ART. 1 DE LA LEY Nº 7.092) OBJETIVOS

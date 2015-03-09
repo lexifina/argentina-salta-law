@@ -1,0 +1,4 @@
+ART.10.- El Consejo debe requerir la colaboración del personal técnico y profesional de las dependencias productoras de documentos de los tres Poderes del Estado, como así también de cualquier otra persona que a su criterio resulte idónea para la elaboración de las Tablas de permanencia y selección documental.
+Estas tablas deberán ser elaboradas en un plazo máximo de ciento ochenta días hábiles a partir de la vigencia del Reglamento Interno. Serán aprobadas por resolución del Consejo Ejecutivo y su aplicación será obligatoria.
+Para los archivos que se adhieran al SIPADA y que por las características de su documentación necesiten, a criterio del Consejo Ejecutivo, la elaboración de tablas de permanencia especiales, el plazo establecido en el párrafo anterior comenzará a computarse a partir de la Resolución que apruebe su adhesión al SIPADA.
+(INCISO F) DEL ART. 5 DE LA LEY Nº 7092) RESGUARDO DEL FONDO DOCUMENTAL DE ORGANISMOS DISUELTOS O PRIVATIZADOS.

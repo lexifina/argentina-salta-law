@@ -1,0 +1,5 @@
+Artículo 1º.- Conforme lo establecido por los artículos 131 y 144 inciso 4) de la Constitución Provincial y el artículo 13 de la Ley Nº 6.811, obsérvase parcialmente el proyecto de ley aprobado por las Cámaras Legislativas en sesión de fecha 15 de agosto de 2000, mediante el cual se crea en el ámbito de la provincia de Salta, el Sistema Provincial de Administración de Documentación y Archivo (SiPADA), ingresado bajo Expte. Nº 90-14.264/00 Referente, ingresado el 24/08/00, en lo que respecta a: artículo 5º inciso 1); artículo 10; artículo 12 incisos b), c) y f); artículo 31 y artículo 32, párrafos tercero y cuarto, proponiéndose sus modificaciones conforme a la redacción que se consigna a continuación:
+-
+Art. 5º, inc. 1), quedará redactado de la siguiente manera:
+“1) Determinar el valor histórico de los documentos existentes en los archivos, fondos o colecciones privadas, respetando los derechos de sus propietarios y establecer, en caso de que fueran donados o adquiridos, el destino físico que tendrán.”
+-

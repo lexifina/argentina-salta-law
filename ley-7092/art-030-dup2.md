@@ -1,0 +1,1 @@
+ART. 30.- La documentación que integre el Patrimonio Documental del Estado no podrá ser sustituida, con excepción de lo dispuesto por el Art. 30 de la Ley que se reglamenta. La sustitución de un original por una copia para su sustracción o venta constituye una violación a la Ley Nº 7092. (ARTÍCULO 28 DE LA LEY Nº 7092) REPRODUCCIÓN PARA SUSTITUCIÓN DEL DOCUMENTO

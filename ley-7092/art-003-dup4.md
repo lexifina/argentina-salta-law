@@ -1,0 +1,3 @@
+ART.3º.- Los convenios de adhesión al SiPADA deben incluir expresamente en sus cláusulas los siguientes contenidos: a) El compromiso por parte del adherente de acatar la normativa emanada del Consejo Ejecutivo. b) En caso de que el Consejo Ejecutivo determine la necesidad de la elaboración de tablas de permanencia para los archivos, fondos o colecciones a adherirse al Sistema, se dejará
+establecida dicha circunstancia. La adhesión deberá ser aprobada dentro del plazo de sesenta (60) días hábiles, por Resolución del Consejo Ejecutivo, caso contrario quedará sin efecto.
+(ARTÍCULO 2 DE LA LEY Nº 1092) INTERRELACIÓN E INTERACCIÓN
