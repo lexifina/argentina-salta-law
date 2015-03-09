@@ -1,0 +1,1 @@
+Art. 4º - Los recursos generados por las prestaciones brindadas a los beneficiarios del Seguro Provincial de Salud no están comprendidos en el régimen de recuperación de costos sanitarios, en tanto constituyen la financiación de la asistencia a la población carente de recursos por parte del Ministerio de Salud Pública.

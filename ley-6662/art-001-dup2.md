@@ -1,0 +1,1 @@
+Artículo 1º - Dispónese la readecuación de los procedimientos para la aplicación del régimen de recuperación de costos sanitarios creado por ley nº 6662, en lo que respecta al Ministerio de Salud Pública.

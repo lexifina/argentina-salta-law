@@ -1,0 +1,2 @@
+Art. 5º - A los fines del cobro de las prestaciones realizadas, el Ministerio de Salud Pública establecerá el nomenclador de prácticas valorizado que los prestadores deberán utilizar sin excepción.
+Para las prestaciones que se efectúen al Instituto Provincial de Salud de Salta (IPSS) se dispondrá de un nomenclador especial, hasta tanto se continuarán utilizando los nomencladores y valores vigentes a la fecha.

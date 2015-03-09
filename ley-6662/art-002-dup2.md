@@ -1,0 +1,1 @@
+Art. 2º - Quedan incluidas en este sistema todas las prácticas o prestaciones que se efectúen en las diversas dependencias y/o servicios dependientes del Ministerio de Salud Pública, cualquiera sea su nivel de complejidad o naturaleza jurídica, en los términos y condiciones fijados en la ley nº 6662 y en la presente reglamentación.

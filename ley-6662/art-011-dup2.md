@@ -1,0 +1,1 @@
+Art. 11 – Los fondos recuperados serán administrados por la autoridad máxima del efector de materia conjunta con el responsable del área Administrativo-Contable de la misma y sujeto a controles orgánicos del Ministerio de Salud Pública.

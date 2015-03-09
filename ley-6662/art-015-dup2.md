@@ -1,0 +1,1 @@
+Art. 15 – El Ministerio de Salud Pública fijará las pautas básicas de organización funcional de las áreas de recuperación de costos para los prestadores y/o efectores, el que estará en función a su nivel de complejidad.

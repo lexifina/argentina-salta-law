@@ -1,0 +1,2 @@
+Art. 14 – Anualmente los prestadores que cuenten con capacidad técnica, deberán elaborar y elevar para su aprobación el programa anual de capacitación cuya ejecución será solventada con los recursos previstos en el artículo 11 de la ley nº 6662.
+Aquellos establecimientos que no cuenten con la capacidad técnica para elaborar dicho programa, aceptarán los contenidos definidos por el Ministerio de Salud Pública, desarrollarán los mismos y los solventarán con los mencionados recursos.

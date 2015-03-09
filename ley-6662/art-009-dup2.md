@@ -1,0 +1,1 @@
+Art. 9º - Los gastos de convenio con obras sociales y mutuales y la difusión de las ventajas y modalidad de la aplicación del sistema de recuperación de costos, no deberán superar el 5% del total de lo recaudado en la respectiva área por dicho sistema.
