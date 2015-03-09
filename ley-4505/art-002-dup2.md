@@ -1,0 +1,2 @@
+Art. 2º.- Si dos o más profesionales actúan separadamente, por encargo respectivamente de otros tantos comitentes, en el desempeño de funciones judiciales, administrativas o de carácter particular, aun cuando produzcan informes en conjunto cada uno de ellos percibirá la totalidad el honorario que fija el presente arancel para la tarea que se le encomendó.
+Trabajo de dos o más profesionales en conjunto
