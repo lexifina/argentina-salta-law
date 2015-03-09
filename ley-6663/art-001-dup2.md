@@ -1,0 +1,3 @@
+ARTICULO 1º — Establécese en todo el territorio de la Nación, de manera que incida en una sola de las etapas de su circulación, un impuesto sobre la transferencia a título oneroso o gratuito de los productos de origen nacional o importado, que se detallan en el artículo 4º del presente Capítulo.
+Quedan también sujetos al impuesto los productos consumidos por el responsable excepto los utilizados exclusivamente como combustibles en los procesos de producción y/o elaboración de hidrocarburos y sus derivados.
+La excepción a que se refiere el párrafo anterior también se aplicará cuando los productos fueran utilizados por el propio responsable en la elaboración de otros igualmente sujetos al gravamen.

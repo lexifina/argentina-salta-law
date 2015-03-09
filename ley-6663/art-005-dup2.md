@@ -1,0 +1,2 @@
+ARTICULO 5º —Facúltase al Poder Ejecutivo nacional a aumentar hasta en un VEINTICINCO POR CIENTO (25%) y a disminuir hasta en un DIEZ POR CIENTO (10%) las alícuotas indicadas en el artículo 4° cuando así lo aconseje el desarrollo de la política económica. Esta facultad podrá ser ejercida con carácter general o regional para todos o algunos de los productos gravados.
+(Artículo sustituido por art. 1° c) de la Ley N°25.745 B.O. 25/6/2003).
