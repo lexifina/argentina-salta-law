@@ -1,0 +1,1 @@
+Artículo 1º.- Obsérvase con carácter de veto parcial, conforme a los artículos 128 y 141 inciso 4) de la Constitución Provincial, los artículos 3º y 4º del Proyecto de Ley sancionado en Expediente Nº 91-3528/93.
