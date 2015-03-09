@@ -1,0 +1,1 @@
+ARTICULO 25 BIS.- Será AUTORIDAD DE APLICACION la SECRETARIA DE ESTADO DE AGRICULTURA Y GANADERIA. EL PODER EJECUTIVO NACIONAL reglamentará el presente Decreto-Ley dentro de los TREINTA (30) días de promulgadas las modificaciones. (Incorporado por el Art.9 de la Ley 22.263 B.O. 07-08-1980. Adherida por Ley Prov. 6520/1988).

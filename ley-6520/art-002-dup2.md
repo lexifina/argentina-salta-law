@@ -1,0 +1,2 @@
+ARTÍCULO 2.- La obligación de calificar la leche a que se refiere el artículo anterior, comenzará a regir el 1 de septiembre de 1963.
+La autoridad de aplicación podrá conceder una prórroga de hasta seis (6) meses para iniciar esta tarea, a aquellos recibidores que justifiquen debidamente la imposibilidad de dar comienzo a la misma en la fecha indicada. (Sustituido por el Art.1 de la Ley Nº 22.263 B.O. 07/08/1980. Adherida por Ley Prov. 6520/1988).
