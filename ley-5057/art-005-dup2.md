@@ -1,0 +1,2 @@
+Art. 5º.- Las previsiones relacionadas con los servicios de protección civil y actividades complementarias, se establecerán en los planes de Defensa Civil de la Provincia y de las comunas. La denominación, misión y procedimientos operativos de los servicios y actividades complementarias mencionados se ajustarán a lo que establezca el Poder Ejecutivo Nacional.
+Conducción de operaciones y otras funciones.
