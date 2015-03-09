@@ -1,0 +1,2 @@
+ART. 23.- La apertura del concurso tendrá carácter público y se realizará en la sede del organismo de aplicación. Para la evaluación de lo propuesto se fijará un sistema de puntaje, constituyéndose
+para esos efectos dentro del organismo de aplicación, una comisión de selección y pre-adjudicación que estará integrada por miembros de aquel organismo, representantes de Escribanía de Gobierno y los organismos técnicos provinciales que el organismo de aplicación juzgue necesario convocar.

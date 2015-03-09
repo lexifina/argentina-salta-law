@@ -1,0 +1,1 @@
+ART. 12.- Determinadas por el organismo de aplicación las áreas destinadas a reseras según lo establecido por el artículo 12 de la ley, podrán ser otorgados permisos o concesiones de uso dentro de las normas que fijen las respectivas particiones técnicas provinciales.

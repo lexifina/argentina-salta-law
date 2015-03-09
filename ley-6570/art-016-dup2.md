@@ -1,0 +1,2 @@
+ART. 16.- En los lugares de concurrencia que se indiquen en las cédulas respectivas, el organismo de aplicación asignará los agentes necesarios para asesorar a los presentantes conforme con el artículo 22 de la ley. La presentación de antecedentes se hará mediante formularios, los que deberán completarse por los referidos agentes, conforme los datos que suministren los interesados.
+De la colonización de áreas no ocupadas. Procedimiento

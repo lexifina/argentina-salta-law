@@ -1,0 +1,1 @@
+ART. 17.- Las unidades de colonización deberán ser compatibles con el concepto de unidad económica establecido por el artículo 2.326 del Código Civil, la Ley provincial Nº 5.304 y las respectivas reglamentaciones de la Dirección General de Inmuebles.

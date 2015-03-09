@@ -1,0 +1,2 @@
+ART. 28.- La compensación a la que se refiere el artículo 44 de la ley será efectuada por el organismo de aplicación atendiendo el justiprecio de las mejora útiles incorporadas por el adjudicatario, que estuvieran autorizadas en la contratación, teniendo éste los recursos que fija la Ley Nº 5.348 de Procedimientos Administrativos de Salta para hacer valer sus eventuales derechos.
+Organismo de aplicación

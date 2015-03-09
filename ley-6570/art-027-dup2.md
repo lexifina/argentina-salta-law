@@ -1,0 +1,1 @@
+ART. 27.- El escribano de Gobierno protocolizará los contratos de adjudicación que se suscriban, en los cuales irán insertas las disposiciones del Plan General de Colonización y aquellas particularidades y convencionales que el organismo de aplicación considere necesarias, que actuarán como condiciones del contrato.

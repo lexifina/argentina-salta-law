@@ -1,0 +1,1 @@
+ART. 7º.- A los efectos del artículo 9º inc. b) de la ley, el organismo de aplicación notificará fehacientemente a los ocupantes sobre los casos re reubicación, fijando un plazo de treinta (30) días para que los mismos ejerzan las oposiciones a que se consideren con derecho.

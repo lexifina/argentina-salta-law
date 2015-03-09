@@ -1,0 +1,1 @@
+ART. 32.- El Organismo de Aplicación establecerá su reglamento interno de funcionamiento. Además deberá llevar Libros de Actas de sus reuniones y resoluciones pertinentes, el que será rubricado por el señor Escribano de Gobierno. Sus decisiones serán por simple mayoría de miembros presentes, siendo el quórum para sus sesiones de la mitad más uno de sus miembros permanentes.

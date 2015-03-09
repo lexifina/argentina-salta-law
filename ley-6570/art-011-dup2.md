@@ -1,0 +1,1 @@
+ART. 11.- Para los casos previstos en el artículo 11 de la ley y existiendo inmuebles constituidos en partes por propiedad exclusiva y en partes por propiedad exclusiva y en partes en copropiedad, los copropietarios acordarán las normas para su organización y funcionamiento contando con el asesoramiento del organismo de aplicación si fuere necesario.

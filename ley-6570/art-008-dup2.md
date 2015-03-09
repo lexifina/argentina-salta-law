@@ -1,0 +1,1 @@
+ART. 8º.- La indemnización para los casos previstos en el artículo 9º inc. c) de la ley, si correspondiere, se determinará por el valor fiscal del predio anteriormente ocupado, más sus mejoras incorporadas al suelo en forma permanente.

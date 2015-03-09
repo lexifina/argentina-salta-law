@@ -1,0 +1,1 @@
+ART. 33.- Dicha comisión podrá requerir la colaboración, participación, estudios técnicos, etc., a los demás organismos provinciales, los que deberán prestar el apoyo necesario para el cumplimiento de sus fines, asimismo podrá solicitar al Poder Ejecutivo la incorporación en carácter de miembros no permanentes a otros agentes que pertenezcan a distintos organismos provinciales.

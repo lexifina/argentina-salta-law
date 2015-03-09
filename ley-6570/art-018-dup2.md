@@ -1,0 +1,1 @@
+ART. 18.- Las Cooperativas de Producción a la que se refiere el artículo 29 inc. c) de la ley, deberán estar constituídas en lo posible por arrendatarios rurales, aparceros, medieros, pequeños productores de unidades económicas insuficientes, minifundios, trabajadores y profesionales del campo.

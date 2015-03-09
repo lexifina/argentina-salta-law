@@ -1,0 +1,1 @@
+ART. 31.- Presidirá el Organismo de Aplicación el señor Ministro de Economía el señor Ministro de Economía y en ausencia del mismo, el Coordinador de tareas de la Comisión de Adjudicación de Tierras Fiscales.

@@ -1,0 +1,1 @@
+ART. 22.- Los postulantes del concurso deberán presentar los datos e informaciones relativas a sus antecedentes con el carácter de declaración jurada los que podrán ser verificados cuantas veces se estime conveniente.
