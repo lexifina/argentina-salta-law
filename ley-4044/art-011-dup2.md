@@ -1,0 +1,4 @@
+Art. 11.- La citación a las Asambleas, tanto ordinaria como extraordinaria, se realizará a través de edictos que se publicarán en el Boletín Oficial y en cualquier otro medio de circulación en la Provincia, durante un día, pero con una antelación superior a los quince (15) días de la realización de la Asamblea.
+En el respectivo edicto deberá consignarse lugar, día y hora de la celebración de la Asamblea y puntos del orden del día a tratarse.
+El quórum de las Asambleas, será el de la mitad más uno de los colegiados, pero podrá celebrarse una hora después con el número de asistentes que concurrieran. La mayoría será la mitad más uno de los miembros presentes al momento de la votación.
+También será tema del orden del día de las Asambleas Ordinarias, la elección de los integrantes del Consejo Directivo, de acuerdo a la reglamentación que ésta dicte.

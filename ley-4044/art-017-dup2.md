@@ -1,0 +1,1 @@
+Art. 17.- Los recursos de apelación deberán interponerse dentro del plazo de diez (10) días hábiles a contar del día siguiente al de la notificación de la resolución del Tribunal de Ética y Ejercicio Profesional, ante este Tribunal, debidamente fundado, quien deberá elevarlo inmediatamente al Tribunal de Apelaciones.

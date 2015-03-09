@@ -1,0 +1,1 @@
+Art. 6º.- La Mesa Directiva es la autoridad que ejerce la representación natural y legal del Colegio. Está integrada por el Presidente, Secretario y Vocal titular primero del Consejo Directivo o sus reemplazantes. Durarán en sus funciones dos (2) años o el tiempo que dure el ejercicio de los cargos antes citados.

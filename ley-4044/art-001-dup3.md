@@ -1,0 +1,1 @@
+Artículo 1º.- El Colegio de Farmacéuticos de Salta creado por Ley Nº 4044 y su modificatoria Nº 5580 tendrá a su cargo el poder de policía del ejercicio de la profesión de farmacéuticos de la Provincia.

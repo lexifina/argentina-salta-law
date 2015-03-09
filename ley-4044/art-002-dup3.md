@@ -1,0 +1,1 @@
+Art. 2º.- El Colegio colaborará activamente con la Dirección de Farmacia dependiente del Ministerio de Salud Pública de la Provincia, a fin de velar y asegurar el correcto y regular ejercicio de la profesión, de acuerdo a las normas legales y reglamentarias vigentes o que en lo sucesivo se dicten sobre el particular.
