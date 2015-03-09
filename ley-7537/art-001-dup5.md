@@ -1,0 +1,1 @@
+ARTÍCULO 1º - Las disposiciones de la Ley Nº 25.630 y de este Decreto Reglamentario se aplican a todas las harinas de trigo que se utilizan para el consumo humano en el país, sean éstas de producción nacional o importadas, para su consumo directo o procesadas.

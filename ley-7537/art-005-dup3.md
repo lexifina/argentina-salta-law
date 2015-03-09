@@ -1,0 +1,2 @@
+ARTÍCULO 5º - La garantía de calidad y control interno de la harina de trigo enriquecida en los niveles requeridos en el artículo 3º de la Ley Nº 25.630 son de responsabilidad de los industriales, los que deberán designar un Director Técnico responsable, en los términos establecidos en el artículo 1346 del Código Alimentario Argentino.
+El Director Técnico y la empresa asumirán ante las autoridades sanitarias, la responsabilidad por la calidad del enriquecimiento del producto.
