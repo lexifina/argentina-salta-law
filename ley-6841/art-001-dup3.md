@@ -1,0 +1,1 @@
+Artículo 1º.- El Gobernador de la Provincia, en ejercicio de su potestad reglamentaria, con la previa actuación de los mecanismos de participación y consultas previstos en el artículo 41 de la Constitución de la Provincia, dictará el marco normativo con arreglo al cual deberán hacerse efectivo los derechos reconocidos por los artículos 40 y 41 de la Constitución Provincial.
