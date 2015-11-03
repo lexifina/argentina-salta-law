@@ -1,0 +1,1 @@
+Artículo 1º - Apruébase la "Estructura de los Planes de Contingencia", que se describe en el Anexo I adjunto, el cual forma parte de la presente resolución. La presentación de los mencionados Planes, de acuerdo con el punto 2.10 del Anexo I de la Resolución S.E. Nº 252/93, seguirá el mismo cronograma previstos para los Estudios Ambientales.

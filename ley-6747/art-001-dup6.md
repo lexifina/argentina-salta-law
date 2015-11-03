@@ -1,0 +1,1 @@
+Artículo 1º - Apruébase las normas y procedimientos para proteger en medio ambiente durante la etapa de exploración y explotación de hidrocarburos, incorporándose como Anexo I, a la presente Resolución.

@@ -1,0 +1,1 @@
+Art. 4º - Las presentes normas y procedimientos comenzarán a tener vigencia a partir de la fecha de su publicación en el Boletín Oficial. Sin perjuicio de ello, no serán utilizadas para la revisión de acciones ya producidas y agotadas.

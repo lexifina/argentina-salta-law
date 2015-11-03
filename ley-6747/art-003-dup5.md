@@ -1,0 +1,2 @@
+Art. 3º - Las empresas y/o los grupos de empresas, concesionarios, permisionarios y operadores a que se refiere el artículo anterior deberán elevar a la Secretaria de Energía, en las condiciones y
+oportunidades que establecen en las normas y procedimientos -la información necesaria para un adecuado seguimiento de la protección al medio ambiente natural, derivadas de las actividades antes mencionadas.

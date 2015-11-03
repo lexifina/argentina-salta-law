@@ -1,0 +1,1 @@
+Art. 8º.- La inscripción en los registros de Productor y de Empresas de Servicios tendrán vigencia por el término de un (1) año calendario, debiéndose renovar anualmente antes del último día hábil del mes del mes de febrero de cada año, actualizando los datos, en cada caso de haberse producido cambios en los originalmente exigidos en los Artículos 5º y 6º del presente decreto.

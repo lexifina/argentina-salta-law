@@ -1,0 +1,1 @@
+Art. 3º - Las compañías operadoras deberán presentar, a Secretaría DE Energía, un informe final de incidente que deberá incluir la información descripta en el Anexo II, dentro de los treinta (30) días de finalizadas la tareas de control de la contingencia.
