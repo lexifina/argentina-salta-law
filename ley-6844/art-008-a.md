@@ -1,0 +1,2 @@
+ARTÍCULO 8º -A partir de la adhesión a esta ley, cada jurisdicción aplicará en forma paulatina y creciente el fondo para el financiamiento individual o mancomunable de viviendas previsto en el artículo 6º, y conforme a las disposiciones establecidas en el capítulo V. A tal fin, se incrementará en un mínimo del quince por ciento anual del total del fondo para financiar la demanda durante los primeros tres años, llegando a un mínimo del cuarenta y cinco por ciento del fondo aplicado a esta modalidad una vez concluido el tercer año.
+Control del destino de los fondos
