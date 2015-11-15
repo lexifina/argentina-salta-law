@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Objeto. Institúyase el Régimen de Promoción de los Clubes de Barrio y de Pueblo destinado a la generación de inclusión social e integración colectiva a través de la promoción, fortalecimiento y desarrollo de los clubes de barrio y de pueblo mediante la asistencia y colaboración, con el fin de fortalecer su rol comunitario y social.
