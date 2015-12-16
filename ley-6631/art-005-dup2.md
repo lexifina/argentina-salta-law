@@ -1,0 +1,3 @@
+Art. 5º - Del Consejo Consultivo:
+a) Delégase en el Secretario de Planeamiento y Control de Gestión la facultad de aprobar el reglamento de funcionamiento del Consejo Consultivo.
+b) Todos los miembros durarán dos (2) años en sus funciones, renovándose anualmente por mitades, pudiendo ser designados nuevamente por un nuevo período. A efectos de la renovación anual, el cuerpo se agrupará en tres sectores: 1) Científico-Tecnológico: cuatro miembros; 2) Empresario laboral: cuatro miembros; 3) Poder Legislativo: dos miembros. Para permitir la primera renovación la mitad de los miembros de cada sector durará un (1) año en sus funciones.

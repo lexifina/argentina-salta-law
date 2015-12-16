@@ -1,0 +1,3 @@
+Art. 3º - Comuníquese, publíquese en el Boletín Oficial y archívese.
+ANEXO I REGLAMENTACION GENERAL DE LA LEY Nº 6631 DE PROMOCION Y FOMENTO
+DE LA INNOVACION TECNOLOGICA

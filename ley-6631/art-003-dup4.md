@@ -1,0 +1,15 @@
+ARTÍCULO 3.- A los fines de la presente ley, se formulan las siguientes definiciones:
+a) Investigación y desarrollo: proyecto cuyo objeto de trabajo es:
+1. Investigación aplicada: trabajos destinados a adquirir conocimientos para su aplicación práctica en la producción y/o comercialización.
+2. Investigación tecnológica precompetitiva: trabajos sistemáticos de profundización de los conocimientos existentes derivados de la investigación y/o la experiencia práctica, dirigidos a la producción de nuevos materiales, productos o dispositivos y al establecimiento de nuevos procesos, sistemas o servicios, incluyendo la fase de construcción de prototipos, plantas piloto o unidades demostrativas, finalizando con la homologación de los mismos.
+3. Adaptaciones y mejoras: desarrollos tendientes a adecuar tecnologías y a introducir perfeccionamientos, que carecen usualmente de los rasgos de originalidad y novedad que caracterizan a los proyectos señalados en los apartados 1 y 2 del presente inciso; b) Transmisión de tecnología: proyectos en los que ya producido y/u homologado el desarrollo,
+debe pasarse de la escala piloto a la escala industrial;
+c) Asistencia técnica: proyectos que tienden a transferir conocimientos, información o servicios
+para resolver problemas técnicos específicos o aportar elementos para su resolución, como por ejemplo, la optimización de un proceso, la mejora de la calidad de un producto, pruebas de control de calidad, asesoramiento en diseño, mercadotecnia , puesta en marcha de plantas o pruebas de funcionamiento y de rendimiento, o bien formación y capacitación de personal; d) Unidad de Vinculación: ente no estatal constituido para la identificación, selección y
+formulación de proyectos de investigación y desarrollo, transmisión de tecnología y asistencia técnica. Representa el núcleo fundamental del sistema, aportando su estructura jurídica para facilitar la gestión, organización y gerenciamiento de los proyectos. Puede estar relacionado o no, con un organismo público;
+e) Agrupaciones de colaboración: las definidas por la ley 22.903, modificatoria de la ley
+19.550, en su Capítulo 3, Sección 1, artículos 367 y 376, con una especificación en su contrato sobre la disolución de la misma y de la distribución de los beneficios que pudieran generarse durante su existencia o con posterioridad a su disolución;
+f) Capital o inversión de riesgo: actividad financiera en la que el proveedor de capital realiza
+una inversión a mediano plazo, la remuneración viene dada por la ganancia de capital más que por el interés o dividendo pagado; por lo que los recursos financieros aportados son cedidos por un título que no produce el derecho a exigir su restitución sino que participan en un negocio de terceros, en el que el inversionista es como máximo corresponsable del negocio; debe implicar una actividad de asistencia y apoyo variable; debe contemplar una cláusula de salida en la que se convenga la forma y el tiempo en que podrá liquidarse la inversión
+Sección 3
+Beneficiarios

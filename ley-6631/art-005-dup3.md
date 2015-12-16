@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Las instituciones oficiales de investigación y desarrollo que adhieran a la presente ley, quedan facultadas para establecer y/o contratar unidades de vinculación, con la finalidad de que dispongan de una estructura jurídica que les permita una relación más ágil y contractual con el sector productivo de bienes y/o servicios.
+Una o varias unidades de vinculación podrán constituir agrupaciones de colaboración con una o varias entidades productivas y/o de servicios.

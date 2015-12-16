@@ -1,0 +1,1 @@
+Art. 2º - Se hacen extensivas a los organismos centralizados y descentralizados de la Administración Pública Provincial las facultades conferidas por el Decreto Nº 508/92 a los organismos del Estado Nacional.
