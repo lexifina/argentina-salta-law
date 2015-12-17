@@ -1,0 +1,7 @@
+Art. 76 ter.- Sin perjuicio de lo establecido en el artículo precedente, la víctima del delito tendrá derecho:
+a) A ser informada por la oficina correspondiente acerca de las facultades que puede ejercer en
+el proceso penal, especialmente la de constituirse en actor civil y/o tener calidad de querellante.
+b) A ser informada sobre el estado de la causa y la situación del imputado.
+c) Cuando fuere menor o incapaz el órgano judicial podrá autorizar que durante los actos
+procesales en los cuales intervenga sea acompañado por persona de su confianza, siempre que ello no coloque en peligro el interés de obtener la verdad de lo ocurrido.
+(Incorporado por el Art. 2 de la Ley 7262/2003).
