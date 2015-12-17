@@ -1,0 +1,1 @@
+Art. 3º - La documentación y los planes de las instalaciones eléctricas, solamente tendrá valor cuando además de la visación legal obligatoria, tenga la constancia de la verificación con la firma del Revisor designado por el Consejo Profesional de Agrimensores, Ingenieros y Profesiones Afines.

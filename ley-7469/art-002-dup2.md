@@ -1,0 +1,1 @@
+Art. 2º - Facúltase al Consejo Profesional de Agrimensores, Ingenieros y Profesiones Afines a establecer los contenidos mínimos necesarios para la documentación y los planos de las instalaciones eléctricas que permitan verificar el cumplimiento de la norma técnica.
