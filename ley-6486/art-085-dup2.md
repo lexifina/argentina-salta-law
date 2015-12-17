@@ -1,0 +1,1 @@
+Art. 85 - Se confeccionará un Padrón por orden alfabético con todos los escribanos en ejercicio y jubilados en condiciones de integrar la Comisión de Ética Notarial el que se pondrá en conocimiento con quince (15) días de anticipación a la fecha de la Asamblea mediante circular a cada escribano en condiciones de votar.

@@ -1,0 +1,1 @@
+Art. 39 - Las mociones de orden se tratarán previamente a todo otro asunto y se discutirán en forma breve, pudiendo usar de la palabra solamente dos veces el autor de la moción y una sola vez los demás. Deberán ser aprobadas por mayoría de votos presentes.

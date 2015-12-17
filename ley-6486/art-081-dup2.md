@@ -1,0 +1,1 @@
+Art. 81 - Finalizada las actuaciones la Comisión de Ética Notarial le correrá vista por diez (10) días al escribano para que alegue sobre el mérito de lo actuado si lo estimare conveniente. Vencido dicho término la Comisión remitirá las actuaciones con sus conclusiones y dictamen al Consejo Directivo el que llamara autos para resolver.

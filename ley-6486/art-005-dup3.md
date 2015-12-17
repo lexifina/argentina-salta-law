@@ -1,0 +1,1 @@
+Art. 5º.- El concurso de oposición y antecedentes deberá efectuarse anualmente y se compondrá de una prueba escrita y otra oral, que serán rendidas ante el Tribunal Calificador conforme lo establecido en el Capítulo II de la Ley Nº 6486.

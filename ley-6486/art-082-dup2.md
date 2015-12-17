@@ -1,0 +1,1 @@
+Art. 82 - En conocimiento de las actuaciones el Consejo Directivo deberá resolver: a) Dar por terminadas las actuaciones por no existir violación de las normas de ética; b) proseguir las actuaciones para calificar la conducta del notario a los fines disciplinarios.

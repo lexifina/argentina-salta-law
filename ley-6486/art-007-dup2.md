@@ -1,0 +1,2 @@
+Art. 7º - Para ser Presidente o Vicepresidente del Consejo Directivo se requiere ser Escribano Titular de Registro y contar como mínimo con diez (10) años de ejercicio profesional. Para el desempeño de los cargos restantes, encontrarse en ejercicio de la profesión con dos (2) años de antigüedad como mínimo.
+Para el ejercicio de las demás funciones de gobierno del Colegio y la participación en las Asambleas será único requisito la calidad de Escribano o Notario, en ejercicio o jubilado.

@@ -1,0 +1,1 @@
+Art. 37 - Acto continuo, se dará lectura por secretaría al Orden del Día, procediéndose a tratar los asuntos en la disposición en que estuvieren enumerados, salvo resolución expresa de la Asamblea por alterarlo.

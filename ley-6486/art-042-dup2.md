@@ -1,0 +1,1 @@
+Art. 42 - No podrán usar de la palabra los asambleístas a quienes no se les haya concedido la misma previamente, ni los que ya hubieren hablado una vez sobre el mismo asunto, salvo que se trate de alguna breve aclaración o se declara libre el debate.

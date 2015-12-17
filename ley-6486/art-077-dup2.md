@@ -1,0 +1,1 @@
+Art. 77 - El plazo para contestar vistas y traslados será de diez (10) días. Todo traslado o vista se considera decretado en calidad de autos debiendo el Colegio dictar resolución dictada previa vista o traslado será irrecurrible para quién no haya contestado, excepto que causen perjuicio irreparable.

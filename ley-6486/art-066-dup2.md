@@ -1,0 +1,1 @@
+Art. 66 - Constituyen en general falta de ética, los actos que afecten el prestigio y decoro del Cuerpo Notarial o que fueron lesivos a la dignidad inherentes a la función o que empañen el concepto de imparcialidad propio de la actividad notarial o que importen el quebramiento de las normas de respeto y consideración que se deben los notarios entre si.

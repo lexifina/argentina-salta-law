@@ -1,0 +1,1 @@
+Artículo 1º.- Con la aclaración apuntada en los considerandos del presente, respecto del Artículo 13 y la observación en carácter de veto del último párrafo del Artículo 44, apruébase el Reglamento Notarial dictado por el Colegio de Escribanos de la provincia de Salta, el que como anexo forma parte del presente decreto.

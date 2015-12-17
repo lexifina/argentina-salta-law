@@ -1,0 +1,1 @@
+Art. 74 - Los miembros de la Comisión de Ética Notarial son recusables únicamente con causa y deberán excusarse por las causales establecidas en el Código de Procedimientos Civil y Comercial y de acuerdo al trámite allí previsto.

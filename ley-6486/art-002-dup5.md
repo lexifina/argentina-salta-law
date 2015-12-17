@@ -1,0 +1,6 @@
+Art. 2º.- Los profesionales habilitados conforme lo establecido en el Artículo 1º tendrán derecho a acceder a la titularidad de un Registro Notarial cuando acrediten una de las condiciones que se expresan en los incisos siguientes:
+a) Haber aprobado el concurso de oposición y antecedentes que el Colegio de Escribanos deberá
+efectuar anualmente.
+b) Haber cumplido con el ejercicio efectivo y buen desempeño como escribano adjunto de un
+titular por el tiempo mínimo de diez (10) años. A tal fin el escribano titular del Registro Notarial en el que se hubiere desempeñado el adjunto, elevará al Colegio de Escribanos un informe sobre su conducta profesional con indicación precisa sobre su idoneidad para el otorgamiento de un Registro Notarial. Asimismo, se efectuará una inspección al Registro de la cual no surjan observaciones que pongan en marcha la potestad disciplinaria.
+El Colegio de Escribanos de Salta, previa verificación del cumplimiento de los requisitos establecidos para los presentantes por la Ley Nº 6486 y este decreto, elevará en cada caso al Ministerio de Gobierno los antecedentes y demás circunstancias relevantes de los profesionales adjuntos con derecho al otorgamiento del Registro correspondiente, para la designación por el Poder Ejecutivo.

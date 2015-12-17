@@ -1,0 +1,1 @@
+Art. 92.- Las comisiones colaborarán con el Consejo Directivo en función asesora y excepcionalmente ejecutivas cuando obren en virtud de una delegación o autorización de aquél. Deberán evacuar verbalmente o por escrito los informes que requiera el Consejo Directivo. Serán presididas e integradas por los escribanos colegiados que designe el Consejo Directivo.

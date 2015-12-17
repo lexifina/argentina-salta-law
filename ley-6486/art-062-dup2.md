@@ -1,0 +1,1 @@
+Art. 62 - Esta Comisión estará formada por dos miembros que se denominarán Órgano de Fiscalización y serán elegidos por el mismo período que el Consejo Directivo y en igual forma que los miembros de éste.

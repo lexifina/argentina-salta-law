@@ -1,0 +1,1 @@
+Art. 79 - Los plazos se cuentan por días hábiles y son perentorios, salvo que la Comisión de Ética Notarial resuelva lo contrario. Cuando este decreto no fijare expresamente el plazo que corresponda para la realización de un acto, lo señalará la Comisión de Ética Notarial de conformidad con la naturaleza del proceso y la importancia de la diligencia.

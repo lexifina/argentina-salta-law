@@ -1,0 +1,1 @@
+Art. 86 - Cualquier escribano podrá impugnar hasta cinco (5) días antes de la fecha de la Asamblea la inclusión de algún escribano en el padrón mencionado en el párrafo anterior invocando la causa de la impugnación. El Colegio debe resolver la impugnación con dos (2) días de anticipación a la fecha de la Asamblea.

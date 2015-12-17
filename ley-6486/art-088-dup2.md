@@ -1,0 +1,1 @@
+Art. 88 - Cada asambleísta ingresará al cuarto oscuro por orden alfabético. La Junta Escrutadora le entregará en ese acto un sobre, firmado por dos de sus miembros, para que introduzca en el un número no superior a seis boletas individuales y lo introduzca personalmente en la urna. Si coloca menos cantidad de boletas el voto será válido. Si coloca mayor cantidad el voto se anula.

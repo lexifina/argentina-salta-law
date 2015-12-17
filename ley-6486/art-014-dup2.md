@@ -1,0 +1,1 @@
+Art. 14 - El Presidente del Colegio de Escribanos de la provincia de Salta ejerce la representación del mismo y está facultado para adoptar cualquier medida y resolver todo asunto que se considere urgente, con cargo de dar cuenta al Consejo Directivo en la primera sesión que realice.

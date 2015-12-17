@@ -1,0 +1,1 @@
+Art. 95 - En caso de disolución legal del Colegio de Escribanos de Salta, se convocará a Asamblea General Extraordinaria para determinar el destino de sus bienes, exceptuando su biblioteca que pasará a formar parte de la Biblioteca Pública Provincial. En caso que esta donación no pudiera llevarse a cabo, la Asamblea determinará su destino.

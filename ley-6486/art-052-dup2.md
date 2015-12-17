@@ -1,0 +1,1 @@
+Art. 52 - El día previsto para la celebración de la Asamblea, se instalará en la sede del Colegio cuando menos una mesa receptora de votos, que será presidida por un consejero que designe la Junta Escrutadora, con la presencia de un fiscal por cada lista. Los fiscales deberán ser designados en el acto de presentación de las listas para su oficialización.

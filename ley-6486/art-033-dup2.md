@@ -1,0 +1,1 @@
+Art. 33 - Las resoluciones de las Asambleas serán tomadas por mayoría de los votos presentes, salvo que se trate de reformar el presente reglamento, en cuyo caso será necesaria las tres cuartas partes de los miembros presentes.

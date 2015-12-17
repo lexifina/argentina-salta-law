@@ -1,0 +1,1 @@
+Art. 20 - El Tesorero vigila la contabilidad, controla los ingresos, hace los pagos ordinarios y los que se autoricen especialmente, proyecta el presupuesto y firma juntamente con el Presidente o el Vicepresidente o el Vocal Primero, los cheques, cuentas , Balances, extracciones y toda documentación relacionada con el dinero y los fondos.

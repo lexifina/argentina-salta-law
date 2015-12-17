@@ -1,0 +1,1 @@
+Art. 27 - Se considerarán miembros correspondientes las personas o instituciones nacionales, provinciales o extranjeras, cuya vinculación con el Colegio se estime de interés para los fines que el mismo persigue, con el voto de la mayoría de los miembros titulares del Consejo Directivo.

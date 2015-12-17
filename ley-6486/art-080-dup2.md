@@ -1,0 +1,1 @@
+Art. 80 - Iniciadas las actuaciones se dará vista al escribano para que ejecute su descargo y ofrezca la prueba que haga a su derecho. Admitida la prueba deberá producírsela en el plazo de treinta (30) días.

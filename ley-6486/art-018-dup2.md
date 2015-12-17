@@ -1,0 +1,1 @@
+Art. 18 - El Secretario refrenda la firma del Presidente en todos los actos, tiene a su cargo el cuidado y atención del despacho diario y es el jefe inmediato del personal sin perjuicio de la facultad del Tesorero de dar indicaciones y ordenes al personal de tesorería o contaduría.

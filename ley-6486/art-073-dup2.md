@@ -1,0 +1,1 @@
+Art. 73 - El Colegio de Escribanos confeccionará la lista en base a los escribanos jubilados y a los titulares de Registro que tengan diez años de ejercicio profesional como mínimo, que no registren sanción alguna en su legajo de las previstas en el Código Notarial y en los Reglamentos notariales o condena firme por delitos dolosos.

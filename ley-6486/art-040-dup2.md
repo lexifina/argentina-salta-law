@@ -1,0 +1,1 @@
+Art. 40 - Será moción de reconsideración la que tenga por objeto rever un acuerdo de la Asamblea y solo podrá formularse en la misma reunión en que este se hubiera adoptado, requiriéndose para ser aprobada dos tercios de los votos emitidos al sancionarse el acuerdo primero.

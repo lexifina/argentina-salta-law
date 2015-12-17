@@ -1,0 +1,1 @@
+Art. 15 - El presidente convoca al Consejo Directivo, preside sus deliberaciones y las de las Asambleas, con voz y voto en caso de empate únicamente; firma las actas, diplomas y todo otro documento que se otorgue o expida en nombre de la institución.

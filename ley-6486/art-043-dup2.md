@@ -1,0 +1,1 @@
+Art. 43 - El asociado en uso de la palabra deberá dirigirse siempre a la presidencia. En ningún caso se permitirá entablar diálogos, hacer observaciones a un asambleísta directamente o apartarse de la cuestión que se esté considerando.

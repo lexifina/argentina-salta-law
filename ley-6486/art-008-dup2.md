@@ -1,0 +1,1 @@
+Art. 8º - El Consejo Directivo sesionará por lo menos una vez por mes o cuando lo solicite cualquiera de sus miembros; el quórum será de seis miembros. Adoptará sus resoluciones generales por el voto de la mayoría de los presentes.

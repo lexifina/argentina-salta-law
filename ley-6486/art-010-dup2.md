@@ -1,0 +1,1 @@
+Art. 10 - Las citaciones indicarán concisamente los asuntos a tratar y serán hechas por Secretaría con no menos de 24 horas de anticipación, salvo que el Presidente convoque a reunión inmediata por razones de urgencia.

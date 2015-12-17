@@ -1,0 +1,1 @@
+Artículo 1º.- Déjase establecido que los escribanos que a la fecha de entrada en vigencia del Decreto 2.582/00, cuya publicación fue efectuada por el Boletín Oficial el 17 de octubre de 2000 y hubieran iniciado el trámite de adjunción, quedarán sujetos al régimen establecido por el Decreto Nº 16/95.

@@ -1,0 +1,1 @@
+Art. 65 - Los deberes señalados en el presente Título no importan la exclusión de otras reglas que, sin estar especificadas, derivan imperativamente de otras normas éticas que hacen a la esencia de la función notarial.

@@ -1,0 +1,1 @@
+Art. 64 - Forma parte esencial de los deberes de todo escribano, el respecto de las normas de ética que debe observar en el ejercicio de la función notarial. El escribano debe tener siempre presente que ejerce una función pública y que debe hace todo aquello que contribuya a mantener la confianza que tiene depositada la sociedad en dicha función.

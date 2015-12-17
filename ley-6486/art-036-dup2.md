@@ -1,0 +1,1 @@
+Art. 36 - Una vez constituida la Asamblea con el quórum necesario el Presidente declarará abierto el acto. Los colegiados que se incorporen posteriormente a la Asamblea solo tendrán derecho a voto si hubieren firmado el libro respectivo, el que estará disponible a ese efecto solamente hasta treinta minutos después de iniciada la Asamblea.

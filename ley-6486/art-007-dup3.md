@@ -1,0 +1,1 @@
+Art. 7º.- Los escribanos que a la fecha de la publicación del presente se desempeñaren como adjunto, continuaran en sus funciones como tales y sujeto al régimen establecido por el Decreto Nº 16/95.(Rectificado por Art 1 del Decreto Nº 2982/2000).

@@ -1,0 +1,1 @@
+Art. 48 - Treinta días corridos antes de la fecha de celebración de una Asamblea en que deban elegirse autoridades, el Consejo Directivo enviará una circular a los colegiados haciéndoles saber esta circunstancia a efectos de la preparación de la lista de candidatos. En cómputo del plazo señalado no se contará el día previsto para la celebración de la Asamblea.

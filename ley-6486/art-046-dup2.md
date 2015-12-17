@@ -1,0 +1,2 @@
+Art. 46 - Las votaciones que no sean actos eleccionarios se harán a viva voz o por signos, por la afirmativa o negativa. También podrán hacerse en forma nominal. A pedido de un asambleísta
+apoyado por cuatro más. Ningún asambleísta podrá dejar de votar sin permiso expreso de la Asamblea. El presidente podrá hacer uso de la palabra y dar su voto únicamente en caso de empate, previa delegación en el vicepresidente o en la autoridad jerárquica inmediata en caso de ausencia o impedimento de aquél.

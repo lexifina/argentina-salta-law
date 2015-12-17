@@ -1,0 +1,1 @@
+Art. 3º.- El Colegio de Escribanos habilitará una nómina especial, en la que se recepcionará las inscripciones de los escribanos titulares que se encuentren en condiciones de incorporar escribanos adjuntos y que deseen hacerlo.

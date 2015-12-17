@@ -1,0 +1,1 @@
+Art. 41 - El presidente dirigirá el debate en la forma que considere más conveniente según las circunstancias, concediendo la palabra preferentemente a quienes no hubieran hecho uso de ella antes y tratará de evitar interrupciones.

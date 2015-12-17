@@ -1,0 +1,1 @@
+Art. 93 - Los miembros de las comisiones durarán en sus funciones hasta la renovación del Consejo Directivo, fecha en que caducarán automáticamente. Podrán ser removidos con anterioridad por decisión del Consejo Directivo.

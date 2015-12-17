@@ -1,0 +1,1 @@
+Art. 58 - Clausurado el acto eleccionario por la Junta Escrutadora, la misma en pleno y con la presencia de los presidentes de mesa y fiscales de las listas, procederá a practicar el cómputo de los votos, escrutando el contenido de cada urna por separado.

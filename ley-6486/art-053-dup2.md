@@ -1,0 +1,1 @@
+Art. 53 - El elector introducirá su voto dentro de un sobre que proporcionará el Colegio en el acto de la elección y lo depositará en la urna. Los sobres deberán estar firmados por lo menos por el Presidente de la mesa en caso de que los fiscales no estuvieren presentes. No se computará el voto que no estuviese en el sobre oficial, como tampoco las boletas sueltas.

@@ -1,0 +1,1 @@
+Art. 24 - La inscripción en el Libro de Registros de Aspirante, que prevé la Ley Notarial, es independiente de la matrícula o colegiación. La destitución en el cargo importará la cancelación de la matrícula.

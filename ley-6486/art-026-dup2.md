@@ -1,0 +1,1 @@
+Art. 26 - Se considerarán miembros honorarios aquellas personas que en virtud de servicio prestados a la institución o por haberse distinguido por su ciencia u otros méritos, fueren reconocidos como tales por la Asamblea, con el voto de los dos tercios de los miembros presentes, a propuesta del Consejo Directivo o a pedido de los colegiados por lo menos.

@@ -1,0 +1,1 @@
+Art. 34 - Solo podrán formar parte de las Asambleas y concurrir a ellas, los escribanos colegiados en ejercicio y jubilados hasta la fecha en que el Consejo Directivo resuelva la convocatoria. El mismo día por secretaría se formará padrón por orden alfabético de colegiados, que deberá quedar expuesto en lugar visible en la sede del Colegio.

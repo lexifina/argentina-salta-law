@@ -1,0 +1,1 @@
+Art. 30 - Corresponde a la Asamblea Ordinaria la consideración de la Memoria, Balance, Inventario General y Presupuesto, como así también la elección de los miembros del Consejo Directivo. En las Asambleas Extraordinarias solo podrán considerarse los asuntos para los cuales se haya hecho expresamente la convocatoria.
