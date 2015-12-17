@@ -1,0 +1,1 @@
+Art. 34 inciso e): “Porcentaje del importe de honorarios y/o ingresos que perciban los matriculados por e1 ejercicio profesional, decidido anualmente por Asamblea y que en ningún caso superará el cinco por ciento (5%) de los mismos”.

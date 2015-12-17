@@ -1,0 +1,1 @@
+Art. 37 íntegro, sugiriendo en su reemplazo la siguiente redacción: “La Junta Electoral se encargará de convocar a elecciones de los cargos electivos de acuerdo a lo establecido en esta ley y los reglamentos. Las elecciones se realizarán treinta (30) días antes de la finalización de cada período y serán convocadas sesenta (60) días antes de la finalización del mismo.”

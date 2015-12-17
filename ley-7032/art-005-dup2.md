@@ -1,0 +1,1 @@
+Art. 5º íntegro, sugiriendo la siguiente redacción en su reemplazo: “La evaluación de la ausencia de los requisitos enumerados en el artículo anterior será competencia del Tribunal de Ética y Disciplina, quien mediante el procedimiento establecido determinará la sanción pertinente. En caso de tratarse de un hecho ilícito remitirá las actuaciones al Ministerio Público.”

@@ -1,0 +1,1 @@
+Art. 38 íntegro, sugiriendo en su reemplazo su redacción de la siguiente manera: “La Junta Electoral deberá estar integrada por un número impar de miembros siendo el Presidente de la Comisión Directiva, Presidente de la Junta Electoral y los miembros restantes dos titulares y dos suplentes elegidos en Asamblea Ordinaria convocada al efecto.”
