@@ -1,0 +1,4 @@
+Artículo 1º - Con encuadre en lo previsto por los artículos 144, inc. 4), 131 y concordantes de la Constitución Provincial, y 11 de la Ley Nº 7.190, obsérvase parcialmente, en los términos contenidos en los considerandos, el Proyecto de Ley sancionado por las Cámaras Legislativas, en sesión de fecha 8 de agosto de 2006, mediante el cual se ha dado sanción definitiva al Proyecto de Ley sobre creación del Registro Único de Guías de Turismo de la Provincia de Salta, ingresado a la Secretaría General de la Gobernación el 16 de agosto bajo Expediente Nº 91-14.969/06 y 15.590/06 - Referente, según se expresa a continuación:
+En el artículo 9º, inciso e): vétase la frase: "…, cuando éste supere las cinco personas";
+En el artículo 10, segundo párrafo: vétase la palabra: "… reiterado…";
+En el artículo 11: vétase íntegramente su texto.
