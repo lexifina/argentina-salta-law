@@ -1,0 +1,1 @@
+Artículo 9.03 - Constitución del Tribunal. El Tribunal de Arbitraje se constituirá en Washington, Distrito de Columbia, Estados Unidos de América, en la fecha que el Dirimente designe y constituido, funcionará en las fechas que fije el propio Tribunal.

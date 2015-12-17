@@ -1,0 +1,1 @@
+Art. 11. - De la Ratificación Legislativa. No se realizará desembolso alguno del préstamo acordado hasta que la Provincia prestataria comunique fehacientemente la sanción de la ley provincial que ratifique el convenio celebrado con el Ministerio del Interior.

@@ -1,0 +1,1 @@
+Artículo 3.10 - Valoración de monedas convertibles. Siempre que, según este Contrato, sea necesario determinar el valor de una Moneda que no sea la del país del Prestatario, en función de otra, tal valor será el que razonablemente fije el Banco.

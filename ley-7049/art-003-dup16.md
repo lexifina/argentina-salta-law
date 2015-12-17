@@ -1,0 +1,1 @@
+Artículo 3.12 - Imputación de los pagos. Todo pago se imputará en primer término a devolución de anticipos no justificados, luego a comisiones e intereses exigibles en la fecha del pago y si hubiere un saldo, a la amortización de cuotas vencidas de capital.

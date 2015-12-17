@@ -1,0 +1,1 @@
+Artículo 6.03 - Utilización de bienes. Salvo autorización expresa del Banco, los bienes adquiridos con los recursos del Financiamiento deberán dedicarse exclusivamente para los fines del Proyecto. Concluida la ejecución del Proyecto, la maquinaria y el equipo de construcción utilizados en dicha ejecución, podrán emplease para otros fines.

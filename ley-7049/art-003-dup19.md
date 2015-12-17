@@ -1,0 +1,1 @@
+Artículo 3.15 - Vencimientos en días feriados. Todo pago o cualquiera otra prestación que, en cumplimiento del presente Contrato, debiera llevarse a cabo en sábado, domingo o en día que sea feriado bancario según la ley del lugar en que deba ser hecho, se entenderá válidamente efectuado en el primer día hábil siguiente, sin que en tal caso proceda recargo alguno.

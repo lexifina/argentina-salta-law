@@ -1,0 +1,1 @@
+Artículo 5.04- No renuncia de derechos. El retardo o el no ejercicio por parte del Banco de los derechos acordados en este Contrato no podrán ser interpretados como renuncia del Banco a tales derechos, ni como el haber aceptado hechos o circunstancias que, de haberse producido, lo hubieran facultado para ejercitarlos.

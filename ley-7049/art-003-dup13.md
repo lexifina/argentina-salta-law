@@ -1,0 +1,1 @@
+Artículo 3.09 - Desembolsos y pagos de amortización e intereses en Moneda Única. En el caso de Préstamos otorgados bajo la Facilidad Unimonetaria, los desembolsos y pagos de amortización e intereses serán efectuados en la Moneda Única del Préstamo particular.

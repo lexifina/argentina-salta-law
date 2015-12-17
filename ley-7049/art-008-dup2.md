@@ -1,0 +1,1 @@
+Art. 8º.- De la Reprogramación. Cuando las causas de incumplimiento no sean imputables al Gobierno Provincial, la Secretaría de la Función Pública del Ministerio del Interior, a través de la Subsecretaría de Asistencia para la Reforma del Sector Público Provincial, podrá acordar con aquél una reformulación de plazos y metas.

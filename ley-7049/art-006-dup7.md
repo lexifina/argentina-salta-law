@@ -1,0 +1,4 @@
+Artículo 6.04 - Recursos adicionales. (a) El Prestatario deberá aportar oportunamente todos los recursos adicionales a los del Préstamo que se necesiten para la completa e ininterrumpida ejecución del Proyecto, cuyo monto estimado se señala en las Estipulaciones Especiales. Si durante el proceso de desembolso del Financiamiento se produjere un alza del costo estimado del Proyecto, el Banco podrá requerir la modificación del calendario de inversiones referido en el inciso (d) del artículo 4.01 de estas Normas Generales, para que el Prestatario haga frente a dicha alza.
+(b) A partir del año calendario siguiente a la iniciación del Proyecto y durante el período de su ejecución, el Prestatario deberá demostrar al Banco, en los primeros sesenta (60) días de cada año calendario, que dispondrá oportunamente de los recursos necesarios para efectuar la contribución local al Proyecto durante ese año.
+CAPITULO VII
+Registros, Inspecciones e Informes

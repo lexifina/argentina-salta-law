@@ -1,0 +1,1 @@
+Art. 6º.- Modifícanse en la parte pertinente los Anexos previstos por el artículo 5º del Decreto Nº 1.410/96 y sus modificatorios a los efectos de la reestructuración de la Secretaría de Asistencia Financiera a las Provincias y de la Secretaría del Interior, de acuerdo a los Anexos al presente artículo.
