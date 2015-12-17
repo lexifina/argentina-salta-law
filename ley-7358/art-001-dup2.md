@@ -1,0 +1,3 @@
+Artículo 1º.- Con encuadre en lo previsto por los artículos 144, inc. 4), 131, 133 y concordantes de la Constitución Provincial y 11 de la Ley Nº 7.190, obsérvase parcialmente, en los términos contenidos en los considerandos, el Proyecto de Ley sancionado por las Cámaras Legislativas, en sesión de fecha 26 de julio del corriente año, mediante el cual se ha dado sanción definitiva al Proyecto de Ley de Políticas Públicas de Preservación y Educación para la Seguridad Vial en el territorio provincial, ingresado a la Secretaría General de la Gobernación el 1º de agosto de 2005, bajo Expediente Nº 91-13.697/05 Referente, según se expresa a continuación:
+En el artículo 6º: vétase íntegramente su texto.
+En el artículo 8º: vétase íntegramente su texto.
