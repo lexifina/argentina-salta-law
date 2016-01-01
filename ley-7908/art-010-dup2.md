@@ -1,0 +1,1 @@
+ARTICULO 10. - El Ministerio de Trabajo, Empleo y Seguridad Social debe promover programas de empleo, de emprendimiento y talleres protegidos, destinados a las personas comprendidas en el artículo 1° de la presente ley.

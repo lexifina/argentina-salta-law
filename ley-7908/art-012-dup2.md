@@ -1,0 +1,1 @@
+ARTICULO 12. - Los gastos que demande el cumplimiento de la presente ley serán atendidos con las partidas que al efecto destine en forma anual el Presupuesto General de la Administración Pública para los organismos comprometidos en su ejecución.

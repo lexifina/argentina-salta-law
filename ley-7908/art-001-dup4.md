@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Apruébase la reglamentación de la Ley Nº 7908 de adhesión a la Ley Nacional 26.928 de "Creación Sistema de Protección Integral para Personas Trasplantadas”, la que como Anexo forma parte integrante del presente.
