@@ -1,0 +1,1 @@
+Art. 94 bis.- Será sancionado con arresto de hasta ochenta (80) días o multa de hasta ochenta (80) días, el funcionario público que por acción u omisión dolosa, provocare, consintiere, autorizare o no denunciare la concreción de un daño ambiental, con efecto sobre la salud y/o el patrimonio de las personas, siempre que el hecho no constituya delito.

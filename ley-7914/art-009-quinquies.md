@@ -1,0 +1,1 @@
+Art. 9° quinquies.- Informes. El Registro de antecedentes contravencionales proporciona información sobre condenas contravencionales sólo a requerimiento de jueces, fiscales o de la persona a que se refiere el antecedente.
