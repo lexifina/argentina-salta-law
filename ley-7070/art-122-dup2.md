@@ -1,0 +1,3 @@
+Art. 122. - De la flora y fauna (reglamentario art. 78, ley 7070).
+La conservación y el manejo de la flora y la fauna como también el control de las actividades que pudieran ocasionar daños actuales o potenciales a estos recursos naturales y genéticos deberá regirse por las disposiciones contenidas en la ley 7070 y toda otra norma que específicamente regule el tópico.
+Será de aplicación, en lo relativo a la protección y defensa de la riqueza forestal provincial, la ley 5242. La Autoridad de Aplicación adecuará reglamentariamente el procedimiento de autorización, fiscalización y control previsto en dicha norma a los fines de su compatibilización con los principios y procedimientos establecidos en la ley 7070 y esta reglamentación.

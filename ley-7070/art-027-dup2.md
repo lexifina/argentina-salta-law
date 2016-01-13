@@ -1,0 +1,16 @@
+Art. 27. - Funciones, atribuciones y obligaciones de la autoridad de aplicación (reglamentario art. 20 ley 7070)
+a) A los fines establecidos en el art. 20 inc. c), la Autoridad de Aplicación podrá instrumentar
+cualquier método o técnica disponible para conocer o recoger propuestas para la resolución de problemas ambientales de alcance provincial, procurando la mayor participación de los sectores involucrados.
+b) Las facultades acordadas en el inc. d) del art. 20 de la ley 7070, deberán ejercerse conforme
+las previsiones de la Ley de Contrataciones vigente.
+a) Los convenios de cooperación celebrados dentro de la esfera de la competencia acordada
+por el art. 20 inc. e), podrán disponer cláusulas de contenido económico, las que en ningún supuesto podrán exceder los montos de las partidas presupuestarias previstas al efecto, ni superar en su totalidad más del 30 % de los recursos previstos en el art. 157 y concordantes de la Ley de Protección del Medio Ambiente.
+b) La Autoridad de Aplicación podrá, a los fines del inc. g), de la ley 7070, emitir dictámenes
+fundados recomendando procedimientos especiales a tener en cuenta por los distintos órganos o entes de la Administración en el proceso de evaluación de impacto ambiental y social. Ante el incumplimiento injustificado de tales recomendaciones, deberá estarse a lo estatuido en el art. 25 "in fine" de esta reglamentación.
+c) Todos los entes públicos y privados tienen la obligación de informar y cooperar con la
+Autoridad de Aplicación en las funciones atribuidas por el art. 20, inc. h) de la ley 7070. La omisión injustificada o el silencio de dichos entes, hará pasibles a las personas físicas o jurídicas responsables, de las sanciones previstas en el Título VI de la ley 7070.
+d) La autoridad de aplicación deberá dictar procedimientos que regulen los permisos de
+explotación de los recursos naturales, de descargo de efluentes y otros de naturaleza similar, sobre la base de técnicas o métodos racionales de explotación, debiendo establecer un régimen especial por actividad o en base a la naturaleza de los recursos de que se trate, con sujeción a los principios de eficiencia, eficacia y simplificación de procedimientos y acciones. Asimismo, para el aprovechamiento de los recursos naturales especialmente de los bosques, de la flora y la fauna en los sitios permisibles, se exigirán planes de manejo que permitan identificar, prevenir y controlar, el uso de los recursos, minimizando los posibles impactos provocados. La autoridad de aplicación aprobará dichos planes, siguiendo criterios de sustentabilidad los que deberán ser suscriptos y certificados por profesional competente en la materia, de acuerdo a principios de fiscalización que serán establecidos por dicha Autoridad.
+e) Las reglas o procedimientos establecidos por otros organismos o entes estatales para el
+otorgamiento de permisos, licencias o concesiones de explotación o uso de los recursos naturales, estarán sujetos a una revisión cuando éstas demanden la incorporación de métodos, procesos o normativas atinentes a la optimización del manejo de dichos recursos, de conformidad a lo establecido por el art. 20 inc. j) de la ley Nº 7070. La autoridad de aplicación podrá emitir normas recomendatorias cuyos alcances y efectos se encuentran
+reglados en los arts. 24 y 25 del presente reglamento.

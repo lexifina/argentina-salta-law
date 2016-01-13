@@ -1,0 +1,2 @@
+Art. 104. - De la prevención y control de la contaminación de las aguas (reglamentario art. 66 ley 7070)
+Deberá entenderse como alteración de la calidad de las aguas a cualquier acción que convierta a las mismas en peligrosas para la salud, no aptas para el uso que se les dé, perniciosas para el medio ambiente o la vida que se desarrolla en el agua o álveo, o que alteren su olor, sabor, temperatura o color de tal forma que causen molestias o daños.

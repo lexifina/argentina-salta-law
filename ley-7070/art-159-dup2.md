@@ -1,0 +1,2 @@
+Art. 159. - Organismos Genéticamente Modificados (reglamentario del art. 104, ley 7070)
+Se encuentran comprendidas en el presente régimen las actividades de utilización confinada, liberación voluntaria de organismos modificados genéticamente y comercialización de estos organismos o de productos que los contengan con el fin de evitar los eventuales riesgos o reducir los posibles daños que de estas actividades pudieran derivarse para la salud humana o el medio ambiente.

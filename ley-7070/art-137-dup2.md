@@ -1,0 +1,2 @@
+Art. 137. - De los suelos, de su uso y conservación (reglamentario art. 89, ley 7070)
+La degradación de suelos incluye toda acción antrópica o natural que provoque erosión hídrica o eólica, pérdida de su capacidad productiva, salinización-alcalinización, elevación de la napa freática, acidificación, contaminación y toxicidad por el uso de productos químicos, por efluentes domésticos, industriales o provenientes de explotaciones mineras, y todo otro tipo de alteración física, química o biológica.

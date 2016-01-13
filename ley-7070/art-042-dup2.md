@@ -1,0 +1,2 @@
+Art. 42. - Formulación de Normas Técnicas Ambientales (reglamentario art. 29 ley 7070)
+La Autoridad de Aplicación podrá solicitar apoyo técnico a organismos e Institutos de indudable solvencia científico-técnica e imparcialidad en sus juicios y consideraciones, tales como universidades, instituto Nacional de Tecnología Industrial (INTI), Instituto Nacional de Tecnología Agropecuaria (INTA) y otros de trayectoria y capacidad equivalente, quedando a cargo del solicitante las erogaciones por tales servicios.

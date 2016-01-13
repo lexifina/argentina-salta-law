@@ -1,0 +1,2 @@
+Art. 19. - Autoridad de Aplicación (reglamentario art. 17 ley 7070)
+Los representantes, delegados, comisionados, o quienes hagan sus veces ante el organismo regional o interjurisdiccional, deberán, so pena de nulidad. ajustar su conducta a los principios, derechos y deberes establecidos en el art. 30, Cap. VIII de la Constitución Provincial, y a los previstos en la Ley de Protección del Medio Ambiente.

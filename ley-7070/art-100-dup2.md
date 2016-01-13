@@ -1,0 +1,2 @@
+Art. 100. - De los principios de manejo sustentable de los recursos hídricos (reglamentario art. 64 ley 7070)
+Las decisiones que se deban adoptar en protección de los recursos hídricos, la clasificación de los mismos y los programas destinados a la conservación y desarrollo sustentable de dichos recursos, deberán atender el sistema hídrico con especial consideración al principio de unidad, si de los datos técnicos resultare su conveniencia.

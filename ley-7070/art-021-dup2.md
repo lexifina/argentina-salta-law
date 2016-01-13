@@ -1,0 +1,3 @@
+Art. 21. - Autoridad de Aplicación (reglamentario art. 18 ley 7070)
+Las normas complementarias dictadas por los Municipios que pudieren afectar o alterar recursos naturales de la Provincia o de otros municipios, podrán ser observadas por la Autoridad de Aplicación, y en su caso, requerir al Ministerio Público, la articulación de las defensas jurisdiccionales del Medio Ambiente que establece el Título II, Cap. III de la ley 7070.
+Cuando el acto o la ordenanza pudiere causar daños a los bienes del Estado Provincial, la Autoridad de Aplicación deberá dar intervención a Fiscalía de Estado de conformidad al art. 149 de la Constitución Provincial.

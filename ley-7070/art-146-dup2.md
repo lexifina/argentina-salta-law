@@ -1,0 +1,2 @@
+Art. 146. - De los suelos, de su uso y conservación (reglamentario art. 90, ley 7070)
+Para acceder a los estímulos previstos en este capítulo, deberá acreditarse que se han ejecutado las prácticas de acuerdo al plan aprobado, elevándose a la Autoridad de Aplicación un Certificado de Ejecución de Prácticas, suscripto por el profesional interviniente; el que en forma previa al otorgamiento de tales beneficios, deberá ser comprobado por la Autoridad de Aplicación.

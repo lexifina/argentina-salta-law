@@ -1,0 +1,3 @@
+Art. 24. - Funciones, atribuciones y obligaciones de la autoridad de aplicación (reglamentario art. 19 ley 7070)
+Las funciones atribuidas por la Ley y por esta reglamentación, serán ejercidas por la Autoridad de Aplicación sin perjuicio de las facultades que por normas especiales le hubieren concedido a otros órganos de la Administración Pública centralizada, descentralizada o autárquica.
+No obstante lo preceptuado en el párrafo anterior, los actos administrativos de fuerza vinculante, dictados por la Autoridad de Aplicación, serán de cumplimiento forzoso para los entes y organismos estatales cuya actividad pueda afectar los recursos previstos en la ley 7070.

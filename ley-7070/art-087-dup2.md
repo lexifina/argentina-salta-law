@@ -1,0 +1,2 @@
+Art. 87. - Certificado de aptitud ambiental (reglamentario art. 46, 2º pár. ley 7070)
+El certificado de aptitud ambiental, deberá ser exigido por todos los organismos de la Administración Pública Provincial y Municipal con competencia en la materia de que traten los proyectos sujetos a la evaluación de impacto ambiental y social, quedando expresamente prohibido en el territorio de la Provincia la autorización de obras y/o acciones que no cumplan este requisito, bajo pena de nulidad.

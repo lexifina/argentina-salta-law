@@ -1,0 +1,2 @@
+Art. 103. - De la prevención y control de la contaminación de las aguas (reglamentario art. 65 ley 7070)
+La Autoridad de Aplicación de la ley 7070, será siempre competente para entender y resolver las cuestiones relativas a contaminación de las aguas, pudiendo dictar normas recomendatorias y obligatorias que regulen el manejo sustentable de los recursos hídricos. Asimismo, es resorte competencial el ejercicio del poder de policía ambiental, sin perjuicio de la aplicación de las sanciones que dictaren otras autoridades en el marco de sus respectivas competencias.

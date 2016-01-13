@@ -1,0 +1,2 @@
+Art. 80. - De las Disposiciones Comunes (reglamentario Art. 13 Ley 7070).
+La Autoridad de Aplicación habilitará un Registro o sección especial para las asociaciones ambientalistas o entidades conservacionistas que operen en jurisdicción provincial. A tales efectos, invitará a las ya existentes a integrar el Registro, debiendo requerir a la Dirección de Personas Jurídicas una nómina de aquellas constituidas al efecto y con sede en la Provincia de Salta. (Sustituido por el Art. 9 del Decreto Nº 1587/2003).

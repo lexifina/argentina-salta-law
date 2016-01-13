@@ -1,0 +1,5 @@
+Art. 168. - Organismos Genéticamente Modificados (reglamentario del art. 104, ley 7070)
+Solicitud de autorización:
+1. Las personas físicas o jurídicas responsables de la fabricación, exportación o importación de productos que contengan o consistan en organismos modificados genéticamente y que pretendan comercializarlos por primera vez, deberán solicitar autorización de la Autoridad de Aplicación previo EIAS, según lo estipulado en el Título III, Capítulo VI y en el Título V, Capítulo I de la ley 7070.
+2. Deberá solicitarse una nueva autorización para la comercialización de aquellos productos que, aun conteniendo los mismos organismos modificados genéticamente que los incluidos en otros productos ya autorizados, vayan a destinarse a diferente uso.
+3. La autorización de comercialización sólo podrá darse cuando se haya autorizado previamente la liberación voluntaria sin fines comerciales de dichos organismos, o se haya realizado el EIAS que estipula la ley 7070. En todo caso, los productos deberán cumplir las normas vigentes sobre comercialización de productos.

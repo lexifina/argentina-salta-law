@@ -1,0 +1,3 @@
+Artículo 1º - Interés Provincial en el Medio Ambiente (reglamentario del art. 1º ley 7070) El presente reglamento se dicta en ejercicio de las potestades gubernativas y administrativas del Poder Ejecutivo Provincial y es de aplicación a todas las actividades públicas y privadas de la Provincia
+en los que se encuentren comprometidos los recursos naturales, el patrimonio cultural y el desarrollo sustentable de la Provincia de Salta. Los organismos de la administración centralizada, descentralizada, autárquica, sociedades del Estado, sociedades de economía mixta y empresas del Estado, cualquiera fuera la participación o naturaleza de las mismas, deberán sujetar sus acciones al orden público de la ley cooperando con el fin previsto en la norma.
+CAPÍTULO II

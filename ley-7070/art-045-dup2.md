@@ -1,0 +1,2 @@
+Art. 45. - Formulación de normas técnicas ambientales (reglamentario art. 29 ley 7070)
+Cuando las normas técnicas de naturaleza ambiental propendan a regular técnicas, métodos o procedimientos para el manejo y/o explotación de los recursos naturales, afectando social y económicamente a una región, departamento, cuenca, área o a diversos municipios, deberá estarse al procedimiento administrativo establecido en el Capítulo V, art. 30 y sigtes. de la Ley 7070.

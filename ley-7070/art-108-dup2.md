@@ -1,0 +1,2 @@
+Art. 108. - De la prevención y control de la contaminación de las aguas (reglamentario art. 67 ley 7070)
+La determinación de las características físicas y técnicas de los cinturones o zonas de protección que restrinjan, limiten o condicionen actividades y usos del suelo tanto en el ámbito privado como en el público, responderán a lo aconsejado por los estudios de impacto ambiental y social que a tal efecto, y con rigor científico se elaboren con arreglo al procedimiento previsto en el Cap. VI, del Título III de la Ley 7070.

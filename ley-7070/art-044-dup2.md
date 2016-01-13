@@ -1,0 +1,2 @@
+Art. 44. - Formulación de normas técnicas ambientales (reglamentario art. 29 ley 7070)
+Queda exclusivamente en cabeza del Poder Ejecutivo, el dictado de normas técnicas de naturaleza ambiental vinculadas al manejo de los organismos genéticamente modificados, previstos en el Título V de la ley 7070. Dichas normas seguirán el procedimiento instituido en los arts. 30 y siguientes de la Ley de Protección del Medio Ambiente.

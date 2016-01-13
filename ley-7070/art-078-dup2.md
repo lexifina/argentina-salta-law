@@ -1,0 +1,8 @@
+Art. 78.- De las Disposiciones Comunes (reglamentario Art. 41 Ley 7070).
+Los Consultores individuales y las firmas consultoras serán solidaria e ilimitadamente responsables con el titular de la obra o actividad por la veracidad de los datos de base que aporten en los Estudios de Impacto Ambiental y Social, o Declaraciones Juradas de Aptitud Ambiental o Informes Auditados, en función de los cuales, se predijeron los impactos y se propusieron las medidas de mitigación. Así también, serán solidaria e ilimitadamente responsables de los daños ambientales que se pudieran producir a partir de la realización de la obra o actividad, en los supuestos que se sigan estrictamente las pautas analizadas y las medidas de mitigación aconsejadas en el estudio de impacto ambiental y social o declaraciones juradas de aptitud ambiental, en virtud de los cuales se hubiera emitido el correspondiente certificado de aptitud ambiental.
+Los consultores individuales o las firmas consultoras estarán sujetas a las siguientes sanciones, las que serán aplicadas por la Autoridad de Aplicación de la Ley 7070 según fuere la naturaleza o características de la falta cometida, sin perjuicio de las sanciones que pudieran serles aplicadas por el Colegio o Asociación Profesional que correspondiere:
+1) Apercibimiento;
+2) Amonestación;
+3) Multa: en los términos establecidos en el art. 132 de la Ley 7070;
+4) Suspensión o cancelación del Registro: si la medida fuere adoptada en distinta jurisdicción, la Autoridad de Aplicación podrá disponer la suspensión o cancelación automática en este Registro.
+(Sustituido por el Art. 8 del Decreto Nº 1587/2003)

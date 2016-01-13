@@ -1,0 +1,2 @@
+Art. 82. - Estudio de impacto ambiental y social (reglamentario art. 44 ley 7070)
+La metodología general aceptada para la evaluación del impacto ambiental será la siguiente: el método de análisis costo-beneficio en los aspectos ambiental y social, con las variables espacio temporal de corto, mediano y largo plazo, lo que no implica el rechazo de otras, siempre y cuando sean subsidiarias y ampliatorias de ésta.

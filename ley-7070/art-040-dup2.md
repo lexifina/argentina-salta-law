@@ -1,0 +1,2 @@
+Art. 40. - Formulación de normas técnicas ambientales (reglamentario art. 29 ley 7070)
+Es competencia de la Autoridad de Aplicación, el dictado de normas o parámetros técnicos de calidad, cuya aplicación no afecte materias de significativa incidencia o trascendencia social y económica de la Provincia, o en una región productiva de ésta, o vulnere convenios celebrados con la Nación o con otras provincias.

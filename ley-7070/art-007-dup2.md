@@ -1,0 +1,2 @@
+Art. 7º - Sistema Provincial de Información Ambiental (reglamentario art. 6º ley 7070)
+El Organismo de Información y Educación Ambiental dependiente de la Autoridad de Aplicación, tendrá a su cargo la recopilación de toda la información ambiental disponible en los distintos organismos provinciales, municipales, universidades, organismos no gubernamentales y dependencias nacionales con representación en la Provincia, para su procesamiento.

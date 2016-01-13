@@ -1,0 +1,2 @@
+Art. 65. - De las disposiciones comunes (reglamentario art. 38 Ley 7070)
+Las actividades no incluidas en el Anexo I del presente reglamento, ni alcanzadas por una resolución ampliatoria de la Autoridad de Aplicación, estarán sujetas al procedimiento de declaración jurada de aptitud ambiental. La selección de dicho procedimiento será de interpretación restrictiva para todos los organismos de la Administración.

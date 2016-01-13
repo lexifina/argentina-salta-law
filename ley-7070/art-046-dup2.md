@@ -1,0 +1,2 @@
+Art. 46. - Formulación de normas técnicas ambientales (reglamentario art. 30 ley 7070)
+Las propuestas que efectuaren los organismos públicos provinciales solicitando la adopción de normas técnicas de naturaleza ambiental, serán canalizadas a través de la Autoridad de Aplicación, la que, previa elevación al Poder Ejecutivo, deberá formular consideraciones sobre la conveniencia de la adopción de las normas técnicas respectivas.

@@ -1,0 +1,8 @@
+Art. 71.- De las Disposiciones Comunes (reglamentario Art. 41 Ley 7.070)
+A los efectos de la inscripción prevista en el artículo anterior, se deberá acreditar:
+1) Título de grado expedido por Autoridad Competente. Matrícula vigente en caso de tratarse de profesión de colegiación obligatoria. Los profesionales que hubieren obtenido su título en el extranjero, deberán además, presentar el título revalidado ante el Ministerio de Cultura y Educación de la Nación.
+2) Formación de post grado específica en el área, para aquellos profesionales que no tengan en sus incumbencias la realización de Estudios de Impacto Ambiental y Social. Los profesionales que tengan entre sus competencias la realización de estudios de impacto ambiental, de impacto social, o de ambos, podrán inscribirse con su título de grado, siempre circunscriptos al ámbito de actuación que le otorguen sus incumbencias profesionales.
+3) En caso de tratarse de personas jurídicas, deberán estar legalmente constituídas según lo establece la legislación vigente y designar un Director Técnico responsable de velar por el cumplimiento estricto de las normas ambientales.
+4) Las firmas consultoras y los consultores individuales deberán fijar domicilio legal dentro del radio urbano del asiento de la Autoridad de Aplicación.
+A los mismos efectos, los aspirantes deberán abonar, un arancel administrativo de conformidad a lo que establezca la respectiva ley tributaria, en concepto de tasa de servicio de fiscalización y control, quedando facultada la Autoridad de Aplicación a establecer, mediante Resolución, el monto y periodicidad del mismo, diferenciándose en los respectivos montos a las personas físicas de las ideales.
+(Sustituido por el Art. 3 del Decreto Nº 1587/2003)

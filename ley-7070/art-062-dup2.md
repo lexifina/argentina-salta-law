@@ -1,0 +1,2 @@
+Art. 62. - De las disposiciones comunes (reglamentario art. 38 ley 7070)
+Las personas públicas o privadas, responsables de proyectos, planes, programas u obras sujetos a evaluación de impacto ambiental y social, deberán contar, previo al comienzo de la ejecución de la obra y/o acción de que se trate, con el correspondiente certificado expedido por la autoridad competente en la materia, que acredite el cumplimiento de los principios rectores para la preservación, conservación, defensa y mejoramiento del ambiente, establecidos en la Ley 7070.

@@ -1,0 +1,3 @@
+Art. 76. - De Las Disposiciones Comunes (reglamentario Art. 41 Ley 7070).
+Los Consultores individuales y las firmas consultoras en Estudios de Impacto Ambiental y Social deberán actualizar sus antecedentes cada dos (2) años. A tal efecto, deberán acreditar la realización de trabajos específicos o la participación en cursos de especialización, que garanticen la debida actualización de los profesionales en la materia propia del registro.
+La autoridad de aplicación propiciará la especialización y perfeccionamiento de los profesionales inscriptos, a través de la promoción de actividades de capacitación con posibilidades puntuables relativas a los aspectos registrales”. (Sustituido por el Art. 6 del Decreto Nº 1587/2003)

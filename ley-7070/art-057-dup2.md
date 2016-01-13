@@ -1,0 +1,2 @@
+Art. 57. - Procedimiento para la adopción de normas técnicas (reglamentario art. 35 ley 7070)
+El Poder Ejecutivo adoptará las normas técnicas de naturaleza ambiental mediante el instrumento de alcance general y abstracto pertinente, salvo que dichas normas técnicas comprometan los principios, derechos y garantías constitucionales. El decreto del Poder Ejecutivo deberá ser publicado por tres (3) días en el Boletín Oficial y en el diario de mayor circulación local.

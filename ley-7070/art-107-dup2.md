@@ -1,0 +1,2 @@
+Art. 107. - De la prevención y control de la contaminación de las aguas (reglamentario art. 67 ley 7070)
+En lo que fuere aplicable, se tendrá en cuenta lo dispuesto en los artículos relacionados a la Protección de cuencas, zonas inundables, penalidades, obligación del permiso, intervención de la autoridad de aplicación (de las obras de defensa), obras privadas que necesiten autorización, imposición en restricciones al dominio, declaración de utilidad pública, y procedimiento de expropiación de la ley 7017: Código de Aguas de la Provincia.

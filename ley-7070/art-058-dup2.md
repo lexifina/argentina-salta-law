@@ -1,0 +1,2 @@
+Art. 58. - Procedimiento para la adopción de normas técnicas (reglamentario art. 36 ley 7070)
+El Consejo Provincial del Medio Ambiente, podrá requerir al organismo con competencia en una norma técnica de naturaleza ambiental, que propicie la revisión de la misma, mediante el procedimiento del art. 36 y siguientes de la ley 7070. La denegatoria deberá ser fundada en los términos previstos en la citada norma.

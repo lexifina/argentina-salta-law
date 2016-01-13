@@ -1,0 +1,3 @@
+Art. 90. - Certificado de Aptitud Ambiental (reglamentario art. 49 ley 7070)
+El organismo público competente deberá librar oficios a otros que tuvieren incidencia en el proyecto, a los sectores involucrados, al Consejo Provincial del Medio Ambiente, a las Municipalidades y/u otras jurisdicciones si correspondiere, requiriendo opinión y otorgando las vistas o consultas señaladas en el art. 49 de la ley 7070. En todos los casos es de notificación y vista obligatoria a la Autoridad de Aplicación de la Ley de Medio Ambiente, bajo pena de nulidad. Dicha vista deberá contener el dictamen y demás elementos de juicio necesarios.
+Las audiencias públicas previstas en el art. 49, podrán ajustarse a las normas de procedimiento establecidas en el art. 51 de este reglamento.

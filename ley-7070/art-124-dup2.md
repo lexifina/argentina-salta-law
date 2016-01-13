@@ -1,0 +1,2 @@
+Art. 124. - De la flora y fauna (reglamentario art. 78, ley 7070)
+El régimen especial de protección a la fauna silvestre acuática o terrestre instituido por la ley 5513 y su reglamentación, es de aplicación para las actividades deportivas, comerciales y científicas efectuadas por entes públicos o privados. La Autoridad de Aplicación velará por su efectivo cumplimiento ejerciendo las potestades que expresa o implícitamente le confieren la ley 7070 y esta reglamentación.

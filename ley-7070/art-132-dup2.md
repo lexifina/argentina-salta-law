@@ -1,0 +1,4 @@
+Art. 132. - De la atmósfera y su contaminación (reglamentario art. 85, ley 7070)
+Las normas técnicas de naturaleza ambiental que se dicten en arreglo a las disposiciones de los arts. 29, 30 y sigtes. de la ley 7070 y esta reglamentación, serán de cumplimiento obligatorio a los fines estatuidos en el art. 85 de la ley de Protección Ambiental.
+Las distintas jurisdicciones que por competencia constitucional tuvieren facultades administrativas ambientales, dictarán las normas en esa materia sin que las mismas pudiesen establecer parámetros inferiores o más permisivos que los establecidos conforme las disposiciones del párrafo anterior.
+Las normativas ambientales que dispongan pautas o estándares de tolerancia deberán tener en cuenta las normativas provinciales y nacionales vigentes así como también los convenios internacionales aplicables al caso.

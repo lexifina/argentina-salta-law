@@ -1,0 +1,3 @@
+Art. 140. - De los suelos, de su uso y conservación (reglamentario art. 89, ley 7070)
+De acuerdo con la región agroecológica y la capacidad de uso de los suelos, la Autoridad de Aplicación determinará áreas de manejo y conservación de suelos estableciendo las obligaciones y estímulos para cada una de ellas, denominándose "Distritos de Uso Sustentable de Suelos".
+Lo establecido en la Ley 7070 y la presente reglamentación se aplicará en las Unidades Operativas de Conservación, que podrán consistir en cuencas de distinto grado o explotaciones agropecuarias, teniendo cada una de ellas distinto estímulo.
