@@ -1,0 +1,1 @@
+Artículo 2º.- Déjase establecido que los miembros de la Comisión que tendrá a cargo la organización del Colegio de Profesionales de Criminalística y Criminología de la Provincia de Salta, desempeñarán sus funciones en carácter ad-honorem.
