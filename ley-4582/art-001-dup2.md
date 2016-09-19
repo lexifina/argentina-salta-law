@@ -1,0 +1,1 @@
+Artículo 1º.- Los profesionales en Ciencias Económicas inscriptos en el Consejo Profesional de Ciencias Económicas de la provincia de Salta, estarán sujetos en jurisdicción de la misma, a las disposiciones del presente régimen arancelario.
