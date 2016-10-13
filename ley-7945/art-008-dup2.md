@@ -1,0 +1,2 @@
+ARTÍCULO 8º — Con relación al cálculo de la retención del impuesto a las ganancias, se establece que el capital del retroactivo que se abone se compute como si las sumas adeudadas hubieran sido abonadas en el mes en que se devengaron.
+En lo que respecta a los importes que correspondan abonar en concepto de intereses y actualización de dicho capital, los mismos estarán exentos del impuesto a las ganancias.
