@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Adhiérese la Provincia de Salta a la Ley Nacional N° 27.191, modificatoria de la Ley Nacional N° 26.190 de "Régimen de Fomento Nacional para el Uso de Fuentes Renovables de Energía destinada a la Producción de Energía Eléctrica".
