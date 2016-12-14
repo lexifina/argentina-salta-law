@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Objeto. La presente ley tiene por objeto establecer el marco general para el ejercicio profesional de trabajo social en todo el territorio nacional, sin perjuicio de la aplicación de las normas locales dictadas por las provincias y la Ciudad Autónoma de Buenos Aires.

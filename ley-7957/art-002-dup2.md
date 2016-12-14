@@ -1,0 +1,1 @@
+ARTÍCULO 2° — Alcance. Las disposiciones de esta ley son de orden público y de aplicación en todo el territorio de la República Argentina.
