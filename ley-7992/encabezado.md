@@ -1,0 +1,8 @@
+LEY Nº 7992
+Expediente Nº 91-34.690/15.
+Sancionada el 16/12/2016. Promulgada el 04/01/2017.
+Publicado en el Boletín Oficial N° 19.943, del 17 de Enero de 2017.
+DONACIÓN DE INMUEBLE A FAVOR DEL CENTRO DE JUBILADOS Y PENSIONADOS NACIONALES Y MAYORES DE LA TERCERA EDAD "GENERAL MANUEL BELGRANO" DEL DEPARTAMENTO CAPITAL.
+EMPLAZAMIENTO DE SU SEDE SOCIAL.
+El Senado y la Cámara de Diputados de la Provincia, sancionan con fuerza de
+L E Y
