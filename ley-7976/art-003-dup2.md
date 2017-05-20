@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- A los fines dispuestos en el artículo 1º, convócase a ambas Cámaras Legislativas a Sesiones Extraordinarias, a tenor de lo establecido en los artículos 112 y 131 de la Constitución de la Provincia.
