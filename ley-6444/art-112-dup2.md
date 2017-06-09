@@ -1,0 +1,5 @@
+Art. 112.- Terminada la verificación de las actas y pronunciada que fuera la resolución pertinente, el Tribunal realizará el escrutinio definitivo, iniciándolo con el examen de los sobres y boletas que tengan la nota de "Impugnado".
+De ellos se retirará la impresión digital del elector y será entregada a los peritos identificadores, para que, después de compararla con la existente en la libreta de enrolamiento, o libreta cívica del impugnado, declaren sobre la identidad del mismo. Si ésta no resultare probada, el voto no será tomado en cuenta en el cómputo; si resultare probada, el voto será tomado en cuenta y el Tribunal
+ordenará la inmediata cancelación de la fianza del elector impugnado o su libertad en caso de arresto.
+Tanto en un caso como en otro, los antecedentes se pasarán al agente fiscal en turno para que sea exigida la responsabilidad al elector fraudulento o al falso impugnador.
+El Tribunal deberá declarar también la validez o nulidad de los votos observados, teniendo en cuenta la importancia de la observación.
