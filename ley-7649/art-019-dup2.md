@@ -1,0 +1,3 @@
+Art. 19º.- Sin reglamentar.
+TÍTULO VII
+RÉGIMEN DE INFRACCIONES

@@ -1,0 +1,1 @@
+Art. 30º.- En el caso de establecer condiciones de admisión y permanencia relacionadas con las vestimenta y calzado, el cartel debe expresar con cuál vestimenta o calzado no se permite ingresar, colocándose la siguiente leyenda: “No se permite el ingreso con…”.

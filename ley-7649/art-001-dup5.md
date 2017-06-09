@@ -1,0 +1,2 @@
+Artículo 1º.- El servicio de control de admisión y permanencia de público en general será realizado por personas físicas que sean contratadas bajo el régimen establecido en la Ley de Contrato de
+Trabajo Nº 20.744 (t.o. 1976) y sus modificatorias, por los titulares de los establecimientos o eventos enunciados en la ley, o a través de empresas que tengan como finalidad la prestación de servicios de control de admisión y permanencia. En ambos casos los trabajadores deberán cumplimentar los requisitos exigidos por la citada Ley.
