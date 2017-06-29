@@ -1,0 +1,1 @@
+Art. 27º - (Art. 27 de la Ley Nº 7.418) La Dirección General de Inmuebles no registrará en forma definitiva la transferencia de la propiedad, hasta que no se acredite haber dado cumplimiento a lo previsto en el artículo 28.

@@ -1,0 +1,1 @@
+Artículo 1º- Modifícase el artículo 6 del Decreto Nº 1611/07, determinándose que la Comisión de Preservación del Patrimonio Arquitectónico y Urbanístico de la Provincia de Salta (CoPAUPS) actuará en el ámbito del Ministerio de Finanzas y Obras Públicas y bajo la dependencia de la Secretaría de Obras Públicas.

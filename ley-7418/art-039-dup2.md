@@ -1,0 +1,1 @@
+Art. 39º - (Art. 39 de la Ley Nº 7.418) Será considerado agravante, todo acto u omisión que tiendan a obstaculizar que la Autoridad de Aplicación tome un conocimiento íntegro del estado del inmueble o sus accesorios; o el impedimento de una correcta e íntegra inspección; o el entorpecimiento de la ejecución de las obras de reparación.

@@ -1,0 +1,1 @@
+Art. 36º - (Art. 36 de la Ley Nº 7.418) El único Recurso que será admisible es el previsto en el artículo 36 de la Ley 7.418, que deberá presentarse y fundarse por ante la Cámara de Apelaciones en lo Civil y Comercial.

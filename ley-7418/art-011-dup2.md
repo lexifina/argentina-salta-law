@@ -1,0 +1,2 @@
+Art. 11º - (Art. 11 de la Ley Nº 7.418) La Comisión deberá abrir una cuenta especial en la entidad bancaria con la que opere el Estado Provincial, en la cual se efectuarán los depósitos de los fondos señalados en el artículo 11 de la Ley 7418.
+La disposición de los fondos de la cuenta especial, deberá efectuarse previa Resolución de la Comisión y la extracción deberá ser suscripta por el Presidente y el Vicepresidente o el Vocal de la Comisión.
