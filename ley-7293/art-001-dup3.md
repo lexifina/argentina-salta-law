@@ -1,0 +1,1 @@
+ARTICULO 1° - La presente ley tiene por objeto promover el voluntariado social, instrumento de la participación solidaria de los ciudadanos en el seno de la comunidad, en actividades sin fines de lucro y, regular las relaciones entre los voluntarios sociales y las organizaciones donde desarrollan sus actividades.

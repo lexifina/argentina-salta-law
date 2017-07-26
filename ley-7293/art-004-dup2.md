@@ -1,0 +1,1 @@
+ARTICULO 4° - La prestación de servicios por parte del voluntario no podrá reemplazar al trabajo remunerado y se presume ajena al ámbito de la relación laboral y de la previsión social. Debe tener, carácter gratuito, sin perjuicio del derecho al reembolso previsto en el artículo 6°, inciso e) de la presente ley.

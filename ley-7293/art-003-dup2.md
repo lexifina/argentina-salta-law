@@ -1,0 +1,2 @@
+ARTICULO 3° - Son voluntarios sociales las personas físicas que desarrollan, por su libre determinación, de un modo gratuito, altruista y solidario tareas de interés general en dichas organizaciones, sin recibir por ello remuneración, salario, ni contraprestación económica alguna.
+No estarán comprendidas en la presente ley las actuaciones voluntarias aisladas, esporádicas, ejecutadas por razones familiares, de amistad o buena vecindad y aquellas actividades cuya realización no surja de una libre elección o tenga origen en una obligación legal o deber jurídico.
