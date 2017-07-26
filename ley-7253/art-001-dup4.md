@@ -1,0 +1,1 @@
+Artículo 1º.- Créase el Consejo Federal del Trabajo (CFT) –el que reemplazará al Consejo Federal de la Administración del Trabajo -, integrado por el Ministerio de Trabajo y Seguridad Social, las administraciones del trabajo de cada una de las Provincias y de la Ciudad Autónoma de Buenos Aires.
