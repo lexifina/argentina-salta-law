@@ -1,0 +1,1 @@
+Art. 290°.- La Autoridad de Aplicación determinará discrecional y fundadamente si es necesario construir el acueducto a cielo abierto o no, si es necesario impermeabilizarlo, materiales a emplear, y todas las exigencias técnicas que sean pertinentes, aplicando el buen arte y seguridad de la obra.

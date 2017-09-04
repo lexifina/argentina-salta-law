@@ -1,0 +1,1 @@
+Art. 207º.- La obligación de inscribir toda modificación o mutación en el domino de un inmueble afectado por un derecho de uso del agua pública, pesa sobre los concesionarios o permisionarios, en los términos dispuestos por el art. 52 inciso h).

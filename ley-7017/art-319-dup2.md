@@ -1,0 +1,1 @@
+Art. 319°.- Los usuarios sin concesiones ni permisos debidamente otorgados que, aprovechando de hecho las aguas del dominio público, no hubieren regularizado su situación en los términos del presente Reglamento, serán considerados clandestinos de pleno derecho sin necesidad de declaración alguna.

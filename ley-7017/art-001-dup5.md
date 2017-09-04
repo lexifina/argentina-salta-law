@@ -1,0 +1,1 @@
+Artículo 1.- Apruébase el procedimiento para la determinación de línea de ribera, conforme dispone el Artículo 126 de la Ley 7.017, Conceptos y Denominaciones que como Anexo I y II forman parte de la presente resolución.

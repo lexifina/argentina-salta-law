@@ -1,0 +1,1 @@
+Art. 313°.- La multa es una suma de dinero que deberá pagar el contraventor y se fijará entre una y diez mil veces el valor del máximo canon anual. El monto cobrado de la misma será destinado a mejorar la infraestructura del sistema afectado.

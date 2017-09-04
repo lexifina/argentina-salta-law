@@ -1,0 +1,2 @@
+Art. 136º.- Las aguas pluviales que discurran por lugares públicos son de responsabilidad municipal. Y son los municipios quienes deberán hacer las obras necesarias para evitar estancamientos y garantizar el normal escurrimiento y aprovechamiento de las mismas. En los predios rurales los cauces naturales son los que indican los lineamientos de los escurrimientos, salvo que se realicen obras aprobadas por la Autoridad de Aplicación que modifiquen los mismos.
+CAPÍTULO Sexto: Aguas Atmosféricas.

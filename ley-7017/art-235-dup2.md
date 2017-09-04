@@ -1,0 +1,1 @@
+Art. 235°.- Los particulares podrán construir libremente las obras hidráulicas previstas en el art. 235 del Código de Aguas, de conformidad a sus previsiones, pero siempre dentro de los límites de sus respectivas propiedades.

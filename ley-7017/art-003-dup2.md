@@ -1,0 +1,2 @@
+Artículo 3º- Obsérvese, con arreglo a las razones esgrimidas en los considerandos, la frase “y aprobado por ley” del primer párrafo, última parte, del Artículo 56 del proyecto de ley sancionado. Dicho párrafo quedará redactado de la siguiente manera:
+“Artículo 56.- Determinación del Canon. La determinación del canon anual por derecho al uso será realizado por el Poder Ejecutivo Provincial previo informe de la Autoridad de Aplicación”.

@@ -1,0 +1,1 @@
+Art. 57º.- El certificado a que se refiere el artículo aquí reglamentado, será exigible sin perjuicio de lo previsto en el art. 212 y lo expedirá el organismo responsable de la recaudación según el art. 310 de esta reglamentación.

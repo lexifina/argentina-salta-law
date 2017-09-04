@@ -1,0 +1,1 @@
+Art. 67º.- El solicitante de la concesión deberá presentar ante la Autoridad de Aplicación los proyectos necesarios de obras de infraestructura para ser auditados por ella, dichos proyectos deberán contener como mínimo los volúmenes de la fuente, el estudio de impacto ambiental, y los desagües previstos sin perjuicio de terceros ni del ambiente

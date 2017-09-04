@@ -1,0 +1,1 @@
+Art. 11.- Costos. Los costos que demanden la determinación de la línea de ribera serán absorbidos por quien solicite la determinación de la misma, siendo la Autoridad de Aplicación quien determine dichos costos.

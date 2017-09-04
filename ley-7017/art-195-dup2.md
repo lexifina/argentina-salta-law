@@ -1,0 +1,1 @@
+Art. 195º.- Todo usuario de uso especial cuya concesión o permiso esté incluida en el área demarcada por la Autoridad de Aplicación para un consorcio, queda incorporado de pleno derecho al mismo y su participación es obligatoria.

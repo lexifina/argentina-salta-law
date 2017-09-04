@@ -1,0 +1,1 @@
+Art. 178º.- El plan de desagües y drenajes integral es la articulación o estructuración coordinada de los planes particulares realizados por los municipios y los desagües naturales, con la finalidad de evitar inundaciones y estancamientos.

@@ -1,0 +1,1 @@
+Art. 2º.- El uso por cualquier título de aguas públicas, álveos u obras construidas para utilidad o comodidad común, no les hace perder el carácter de bienes públicos del Estado, inalienables e imprescindibles.

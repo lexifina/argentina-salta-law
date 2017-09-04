@@ -1,0 +1,1 @@
+Art. 262°.- En el caso de los concesionarios estén agrupados en consorcios, los mismos podrán en Asamblea establecer la fecha de inicio y terminación del turnado comunicando a la Autoridad de Aplicación para su aprobación.

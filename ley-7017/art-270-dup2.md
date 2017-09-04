@@ -1,0 +1,1 @@
+Art. 270°.- El dueño del predio sobre el que se quiere imponer servidumbre, podrá oponerse probando que la ocupación puede imponerse sobre otro predio con menores inconvenientes o que pueda ejercitarse el derecho de quien quiera imponer servidumbres, usando terrenos del dominio público.

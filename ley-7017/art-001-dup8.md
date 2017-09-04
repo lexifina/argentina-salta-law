@@ -1,0 +1,1 @@
+Artículo 1.- Las aguas, cualquiera sea la forma en que aparecen en la naturaleza o la utilización que se les dé, forman parte de una unidad que es el ciclo hidrológico, siendo objeto de regulación por parte de la Autoridad competente que es para este Código la Autoridad de Aplicación.

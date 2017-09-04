@@ -1,0 +1,1 @@
+Art. 172º.- La Autoridad de Aplicación es el organismo competente para expedir las certificaciones de "no inundabilidad", que constituyen un recaudo indispensable para todo asentamiento poblacional, urbanización, o plantación en zona ribereña. Ello, previo cobro a los interesados de un arancel, que fijará para cada caso la Autoridad de Aplicación.

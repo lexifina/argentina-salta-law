@@ -1,0 +1,1 @@
+Art. 40º.- Inciso a): Se declarará la caducidad en todos los casos de incumplimiento en la ejecución de obras, trabajos y estudios, a que estuvieren obligados los concesionarios; salvo que éstos demuestren que de su parte no hubo negligencia, imprudencia o impericia en el incumplimiento de sus obligaciones.

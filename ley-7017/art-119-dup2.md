@@ -1,0 +1,1 @@
+Art. 119º.- Son modalidades del uso recreativo que requieren de la concesión prevista en esta sección, todos aquellos que, no tomando sus caudales de la red de agua potable, tengan las finalidades previstas en el art. 118 del Código de Aguas.

@@ -1,0 +1,1 @@
+Art. 258°.- En los casos de aguas superficiales los aforos se practicarán durante todo el ciclo hidrológico anual mediante mediciones y registraciones metódicas y sistemáticas, en puntos estratégicos del curso de agua en estudio.

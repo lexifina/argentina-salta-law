@@ -1,0 +1,1 @@
+Art. 4.- Notificación. La Comisión formada al efecto deberá notificar a todas las partes interesadas que la Autoridad de Aplicación ha decidido realizar la determinación de la línea de ribera correspondiente y además la Comisión deberá publicar en el Boletín Oficial por 2 (dos) días y en el medio gráfico de mayor difusión un aviso de inicio de la determinación prevista.

@@ -1,0 +1,1 @@
+Art. 32º.- Además de toda otra circunstancia que la Autoridad de Aplicación considere oportuno hacer constar en el "Título de Concesión", se consignará siempre la obligación de mantener actualizados los datos de titularidad del inmueble beneficiado. Ello, con la prevención del art. 52 inc. h).

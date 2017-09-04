@@ -1,0 +1,1 @@
+Art. 314°.- La Autoridad de Aplicación podrá disponer sanciones conminatorias consistentes en el pago de una suma de dinero que se fijará en un monto diario de una a cien veces el valor del máximo canon anual. Los montos cobrados podrán ser destinados a quienes hayan sido damnificados.

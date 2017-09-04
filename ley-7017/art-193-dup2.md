@@ -1,0 +1,1 @@
+Art. 193º.- Los consorcios fijarán anualmente en asamblea el monto y forma de distribución de la Prorrata, según el beneficio que reciba cada concesionario o gasto que ocasione, la que será puesta a consideración y aprobación de la Autoridad de Aplicación.

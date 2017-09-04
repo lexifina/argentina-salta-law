@@ -1,0 +1,1 @@
+Art. 6.- Métodos. El método a aplicar para la determinación de la línea de ribera a proponer por la Comisión Técnica deberá ser técnicamente sustentable en función de la información existente y de las características del río que se trate.

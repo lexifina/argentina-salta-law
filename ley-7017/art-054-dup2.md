@@ -1,0 +1,1 @@
+Art. 54º.- La Concesión genera un derecho subjetivo al uso. Dicho derecho es inherente a los predios en beneficio de los cuales se lo concede. El canon es una obligación de pago o contribución por el derecho al uso y los conceptos diferenciados en el artículo 54 del Código de Aguas no deben ser confundidos por inclusión, sino considerados cada uno por separado.

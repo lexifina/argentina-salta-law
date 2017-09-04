@@ -1,0 +1,1 @@
+Art. 27º.- Para el otorgamiento de Permisos de usos especiales sobre el agua del dominio público, deberán acreditarse ante la autoridad de aplicación los mismos recaudos que los exigidos para las Concesiones respecto de la protección y conservación del agua, su fuente, su ciclo y su ambiente.

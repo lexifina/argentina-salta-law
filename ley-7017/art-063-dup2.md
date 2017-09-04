@@ -1,0 +1,1 @@
+Art. 63º.- La Autoridad de Aplicación determinará en forma transitoria o permanente el área crítica por resolución fundada, si fuere necesario establecerá restricciones al uso suntuario y, en los casos que amerite, fijará caudales máximos de consumo por persona aproximados en 250lts. / persona día.

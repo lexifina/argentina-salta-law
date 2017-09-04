@@ -1,0 +1,1 @@
+Artículo 1.- Apruébase la Resolución N. 070/02 de la Agencia de Recursos Hídricos, que establece el procedimiento para la determinación de la línea de ribera, conforme dispone el artículo 126 de la Ley 7.017 que en copia forma parte del presente decreto.

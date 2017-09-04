@@ -1,0 +1,1 @@
+Artículo 7º - El presente decreto será refrendado por el señor Ministro de la Producción y el Empleo y por la señora Secretaria General de la Gobernación.

@@ -1,0 +1,1 @@
+Art. 243°.- La Autoridad de Aplicación podrá autorizar la realización de los canales contiguos o su mantenimiento, sólo cuando los usuarios sean diferentes y, a criterio exclusivo de dicha autoridad, la operación de los mismos sea tanto económica, como técnica y administrativamente más conveniente.

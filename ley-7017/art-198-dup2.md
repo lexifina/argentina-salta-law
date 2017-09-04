@@ -1,0 +1,1 @@
+Art. 198º.- Los Consorcios de Segundo Grado gozarán de personería jurídica, al igual que los de Primer Grado, la que será otorgada por el Poder Ejecutivo Provincial e inscripta en el libro respectivo.

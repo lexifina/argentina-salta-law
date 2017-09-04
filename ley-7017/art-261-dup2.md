@@ -1,0 +1,1 @@
+Art. 261°.- La anticipación para el preaviso de este artículo será con una antelación no menor a 48 hs. si las circunstancias y necesidades así lo permiten. Si la causa fuere de urgencia se aplicarán por analogía las previsiones dispuestas por el artículo 2512 del Código Civil.

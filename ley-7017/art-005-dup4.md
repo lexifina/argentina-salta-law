@@ -1,0 +1,1 @@
+Art. 5º.- La declaración de utilidad pública deberá ser efectuada por la Legislatura, previo informe que realizará la Autoridad de Aplicación, concordando este artículo con el artículo 304 de la Ley Nº 7017, en tanto que los procedimientos a aplicar, serán los de la expropiación, rigiéndose por la ley vigente en la Provincia.

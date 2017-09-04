@@ -1,0 +1,1 @@
+Art. 229º.- Sin perjuicio de lo establecido por la Ley de Expropiaciones de la Provincia y la actuación de las autoridades que ella dispone, en los supuestos del artículo aquí reglamentado, será indispensable la participación de la Autoridad de Aplicación del Código de Aguas, como organismo específico en la materia hídrica.

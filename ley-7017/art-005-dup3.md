@@ -1,0 +1,1 @@
+Art. 5.- Plazo de Presentación. Las partes involucradas deberán presentar a la Comisión toda información, estudio, planos o cualquier otro dato que sirva u oriente a la misma en la determinación de la línea de ribera dentro de los 15 (quince) días de notificados.

@@ -1,0 +1,1 @@
+Art. 7.- Características Morfológicas. La línea de ribera deberá delimitarse por el nivel correspondiente al caudal de la máxima crecida ordinaria; considerando además las distintas características que tienen los ríos en la Provincia, en especial los procesos asociados con la migración lateral provocada por la erosión natural.
