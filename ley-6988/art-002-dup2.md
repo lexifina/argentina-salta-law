@@ -1,0 +1,3 @@
+ARTÍCULO 2º — Para el cumplimiento de los objetivos establecidos en el artículo 1º de la presente, se dispone la creación de un fondo fiduciario destinado a: financiar la realización de obras de infraestructura económica y social, la creación en el ámbito del Banco Hipotecario Nacional de una reserva especial destinada a constituir una línea de créditos que financie hasta el noventa y cinco por ciento (95 %) de las viviendas, la capitalización del Banco de la Nación Argentina y la modificación de su Carta Orgánica. (Expresión "contraer empréstitos para el cumplimiento de los fines previstos en el capítulo II de la presente ley" vetada por art. 1º del Decreto Nº 677/97 B.O. 25/07/1997).
+CAPITULO II
+Fondo Fiduciario Federal de Infraestructura Regional
