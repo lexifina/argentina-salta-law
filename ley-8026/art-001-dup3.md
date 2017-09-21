@@ -1,0 +1,1 @@
+ARTICULO 1° — Prohíbese la utilización de equipos de emisión de rayos ultravioletas destinadas para bronceado, ya sea camas solares o similares, a personas menores de edad, en los establecimientos que presten al público servicio de bronceado, con excepción de los casos de necesidad terapéutica justificada por profesionales médicos.

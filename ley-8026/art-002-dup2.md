@@ -1,0 +1,6 @@
+ARTICULO 2° — Los establecimientos que presten al público servicio de bronceado por equipos de emisión de rayos ultravioletas, están sujetos a las siguientes obligaciones:
+a) Exhibir en lugar visible un cartel, que informe a los usuarios que la utilización de dichos
+aparatos está prohibida para menores de edad, con la excepción establecida en el artículo 1º;
+b) Proveer información, bajo la forma de consentimiento informado, sobre los posibles
+daños que se generan en la piel por el efecto acumulativo de los rayos ultravioletas, en la forma que determine la reglamentación;
+c) Contar con personal que posea los conocimientos básicos en primeros auxilios.

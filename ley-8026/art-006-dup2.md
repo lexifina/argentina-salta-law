@@ -1,0 +1,1 @@
+ARTICULO 6° — El Ministerio de Salud es la autoridad de aplicación de la presente ley y debe promover en el marco del Consejo Federal de Salud —COFESA—, su ejecución y control en el ámbito de las provincias y de la Ciudad Autónoma de Buenos Aires.
