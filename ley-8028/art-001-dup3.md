@@ -1,0 +1,1 @@
+ARTÍCULO 1° — Declárase de interés nacional el abordaje integral e interdisciplinario de las personas que presentan Trastornos del Espectro Autista (TEA); la investigación clínica y epidemiológica en la materia, así como también la formación profesional en su pesquisa, detección temprana, diagnóstico y tratamiento; su difusión y el acceso a las prestaciones.

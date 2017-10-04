@@ -1,0 +1,1 @@
+ARTÍCULO 3° — Sin perjuicio de lo establecido en el artículo precedente, deberá preverse la participación de la Comisión Nacional Asesora para la Integración de las Personas con Discapacidad en la formulación de cualquier política pública vinculada a los Trastornos del Espectro Autista (TEA).
