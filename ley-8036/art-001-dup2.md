@@ -1,0 +1,3 @@
+ARTÍCULO 1°.- Obsérvase en forma parcial, con encuadre en lo previsto por los artículos 131, 133 y 144, inciso 4 de la Constitución Provincial y artículo 8° de la Ley N° 7.905, conforme lo expresado en el considerando del presente, el Proyecto de Ley sancionado por las Cámaras Legislativas en sesión celebrada el día 19 de septiembre de 2.017 y comunicado al Poder
+Ejecutivo en fecha 28 del mismo mes y año, bajo Expediente N° 91-35906/2.016, según se expresa a continuación;
+a) En el artículo 3° vétase la frase "...dentro del plazo de treinta (30) días hábiles, computados desde la publicación de la norma de alcance general contraria a la Constitución Provincial."

@@ -1,0 +1,2 @@
+ARTÍCULO 3°.- Con encuadre en lo previsto por los artículos 131, 133 y 144, inciso 4 de la Constitución Provincial y artículo 8° de la Ley N° 7.905, propónese al Poder Legislativo la sanción de la modificación que se sugiere para ser incorporada al texto del Proyecto de Ley en tratamiento, según se expresa a continuación:
+a) En el artículo 3°, después de la palabra "Justicia" incorporar:"... dentro del plazo de noventa (90) días hábiles, computados desde la publicación de la norma de alcance general contraria a la Constitución Provincial."
