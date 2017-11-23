@@ -1,0 +1,1 @@
+Art. 2º Bis Resoluciones. Para dictar sentencia válida se requiere el voto totalmente concordante de dos (2) jueces. En caso de votación de todos los componentes de una Cámara o Sala, el pronunciamiento válido se emite por mayoría absoluta de votos totalmente concordantes. (Incorporado por el Art. 8 de la Ley 7624/2010).
