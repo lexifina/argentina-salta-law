@@ -1,0 +1,1 @@
+ARTÍCULO 7°.- La empresa distribuidora deberá habilitar una línea telefónica especial gratuita de atención personalizada destinada exclusivamente a la atención de los usuarios electrodependientes por cuestiones de salud disponible las 24 horas incluyendo días inhábiles.

@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Denomínanse electrodependientes por cuestiones de salud a aquellas personas que requieran de un suministro eléctrico constante y en niveles de tensión adecuados para poder alimentar el equipamiento médico prescrito por un médico matriculado y que resulte necesario para evitar riesgos en su vida o su salud.

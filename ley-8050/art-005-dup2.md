@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- El titular del servicio o uno de sus convivientes que se encuentre registrado como electrodependiente por cuestiones de salud quedará eximido del pago de los derechos de conexión, si los hubiere.

@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- El titular del servicio o uno de sus convivientes que se encuentre registrado como electrodependiente por cuestiones de salud gozará de un tratamiento tarifario especial gratuito en el servicio público de provisión de energía eléctrica que se encuentre bajo jurisdicción nacional.

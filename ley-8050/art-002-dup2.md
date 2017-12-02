@@ -1,0 +1,1 @@
+ARTÍCULO 2°.- El titular del servicio o uno de sus convivientes que se encuentre registrado como electrodependiente por cuestiones de salud tendrá garantizado en su domicilio el servicio eléctrico en forma permanente. El medidor de dicho domicilio deberá estar debidamente identificado.
