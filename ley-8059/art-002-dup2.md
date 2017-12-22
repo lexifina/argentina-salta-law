@@ -1,0 +1,1 @@
+ARTICULO 2°-Para el ejercicio del derecho otorgado en el artículo anterior la trabajadora deberá comunicar fehacientemente el diagnóstico del recién nacido al empleador con certificado médico expedido por autoridad sanitaria oficial, por lo menos con quince días de anticipación al vencimiento del período de prohibición de trabajo por maternidad.

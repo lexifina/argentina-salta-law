@@ -1,0 +1,1 @@
+ARTICULO 1°-El nacimiento de un hijo con Síndrome de Down otorgará a la madre trabajadora en relación de dependencia el derecho a seis meses de licencia sin goce de sueldo desde la fecha del vencimiento del período de prohibición de trabajo por maternidad.
