@@ -1,0 +1,2 @@
+ARTÍCULO 1° — Créase el Sistema Nacional para la Gestión Integral del Riesgo y la Protección Civil que tiene por objeto integrar las acciones y articular el funcionamiento de los organismos del Gobierno nacional, los Gobiernos provinciales, de la Ciudad Autónoma de Buenos Aires y
+municipales, las organizaciones no gubernamentales y la sociedad civil, para fortalecer y optimizar las acciones destinadas a la reducción de riesgos, el manejo de la crisis y la recuperación.

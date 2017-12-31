@@ -1,0 +1,1 @@
+ARTÍCULO 3° — El Sistema Nacional para la Gestión Integral del Riesgo y la Protección Civil tiene como finalidad la protección integral de las personas, las comunidades y el ambiente ante la existencia de riesgos.
