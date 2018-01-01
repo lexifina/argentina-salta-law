@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Sustitúyese el artículo 34 de la ley 25.917, por el siguiente:

@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Las modificaciones al Régimen Federal de Responsabilidad Fiscal dispuestas por la presente ley entrarán en vigencia a partir del 1° de enero de 2018. Para aquellas jurisdicciones que adhieran con posterioridad, la vigencia comenzará a regir a partir de la fecha de adhesión.
