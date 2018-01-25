@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión del 1º de diciembre de 2.016, ingresado como Expediente Nº 91-34797/2016, el día 20 del mismo mes y año, vetándose íntegramente el texto de los artículos 6º, 8º, 9º, 10º, 11º, 12º y 13º.
