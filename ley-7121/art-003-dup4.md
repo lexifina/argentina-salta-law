@@ -1,0 +1,1 @@
+Artículo 3º: El Poder Ejecutivo deberá convocar con una antelación de 60 (sesenta) días el llamado a elecciones de autoridades del Instituto, el que deberá contener las fechas de inicio y finalización del período eleccionario.

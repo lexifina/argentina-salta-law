@@ -1,0 +1,1 @@
+Art. 5º.- Prorrógase la vigencia del mandato conferido a la Comisión Interventora y Normalizadora del IPPIS, previsto en el Art. 5 del Decreto Nº 724/02, hasta tanto sean proclamadas las autoridades que resulten elegidas de conformidad al mecanismo establecido.

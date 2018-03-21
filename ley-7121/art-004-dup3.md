@@ -1,0 +1,1 @@
+Art. 4º.- Para la elección de representantes será de aplicación el Reglamento para las elecciones del Instituto Provincial de Pueblos Indígenas de Salta, Aprobado por Decreto Nº 768/02, con las modificaciones previstas en el artículo del presente.

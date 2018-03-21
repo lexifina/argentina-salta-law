@@ -1,0 +1,1 @@
+Art. 6.- La elección de los representantes de las distintas comunidades ante la Asamblea deberá ser realizada en forma simultánea en el lugar de asentamiento de la respectiva comunidad, salvo caso fortuito o de fuerza mayor. (Modificado por el Art. 1 del Decreto Nº 1331/2002)(Plazo modificado por el Art. 5 del Decreto Nº 2392/2008).

@@ -1,0 +1,1 @@
+Art. 13.- Una vez tomada razón del resultado de la elección y en el plazo de cuarenta y ocho (48), horas la Dirección General de Personas Jurídicas emitirá Resolución proclamando a los electos, resolución que deberá ser remitida al Poder Ejecutivo.

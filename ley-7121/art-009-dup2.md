@@ -1,0 +1,1 @@
+Art. 9.- El Acta de Elección deberá ser remitida dentro de las cuarenta y ocho horas a la Dirección General de Personas Jurídicas para su toma de razón, la que habilitará un Registro donde se asentarán las nóminas de la Asambleas.

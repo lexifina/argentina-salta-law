@@ -1,0 +1,2 @@
+Art. 8º - Incorpórase como segundo párrafo del artículo 10º del Decreto Nº 768/02 el siguiente texto:
+“El resultado de las elecciones de las distintas comunidades y las nóminas de las asambleas presentadas, podrán impugnarse dentro de los 3 (tres) días corridos siguientes al registro de las mismas en la mencionada Dirección, las que serán resueltas por el Tribunal Electoral de Garantía en el plazo establecido en el artículo 5º.”

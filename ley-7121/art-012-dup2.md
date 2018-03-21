@@ -1,0 +1,1 @@
+Art. 12.- El resultado de la elección se hará constar en un Acta confeccionada con los recaudos del Artículo 8º, y remitirse a la Dirección General de Personas Jurídicas a los efectos del Artículo 9".

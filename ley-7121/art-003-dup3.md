@@ -1,0 +1,1 @@
+Art. 3.- El Poder Ejecutivo deberá convocar con una antelación de 75 (setenta y cinco) días el llamado a elecciones de autoridades del Instituto, el que deberá contener las fechas de inicio y finalización del período eleccionario. (Plazo modificado por el Art. 2 del Decreto Nº 2392/2008).
