@@ -1,0 +1,1 @@
+ARTICULO 8° – Dentro de las categorías b) y siguientes del artículo 7º, la prioridad de pago se asignará respetando el orden cronológico de las fechas en que hubieren quedado firmes y definitivos los actos judiciales o administrativos que reconocieran el crédito líquido.

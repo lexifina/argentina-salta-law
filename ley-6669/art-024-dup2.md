@@ -1,0 +1,3 @@
+ARTICULO 24. – Los Bonos de Consolidación y Bonos de Consolidación de Deudas Previsionales tendrán el tratamiento impositivo previsto en el artículo 36 bis de la Ley N° 23.962, modificatoria del régimen de obligaciones negociables creado por la Ley N° 23.576.
+Para sus suscriptores originales los bonos no se considerarán activos a los efectos de la liquidación del impuesto sobre los activos, no rigiendo lo previsto en el último párrafo del artículo 3º del la Ley N° 23.760.
+Los bonos quedan exentos del impuesto establecido por el título VI de la Ley N° 23.966 sobre los bienes personales no Incorporados al proceso económico.

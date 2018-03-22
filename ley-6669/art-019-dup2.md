@@ -1,0 +1,4 @@
+ARTICULO 19. – Las provincias podrán consolidar las obligaciones a su cargo que reúnan las condiciones establecidas en el artículo 1º. Las normas legales locales respectivas no podrán
+introducir mayores restricciones a los derechos de los acreedores que las que la presente ley establece respecto a las deudas del sector público nacional.
+Los medios que se dispongan para cancelar las obligaciones que se consoliden en las jurisdicciones provinciales sólo podrán afectar recursos fiscales, bienes o créditos que pertenezcan a las respectivas provincias.
+Las administraciones públicas provinciales, sus entes descentralizados, las municipalidades, bancos oficiales y empresas públicas locales, que pertenezcan a una misma jurisdicción, serán consideradas un conjunto económico a los fines de la presente ley.

@@ -1,0 +1,1 @@
+Art. 3º – Obsérvase la parte del inciso d) del artículo 7° del Proyecto de Ley registrado bajo el N° 23.982, que dice: "sin sentencia firme a la fecha de sanción de esta ley", insertada al final de dicho inciso.

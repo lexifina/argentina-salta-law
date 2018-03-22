@@ -1,0 +1,3 @@
+ARTICULO 11. – El Poder Ejecutivo nacional dispondrá la emisión de Bonos de Consolidación o Bonos de Consolidación de Deudas Previsionales hasta la suma necesaria para afrontar las solicitudes de suscripción que reciba para cancelar las obligaciones consolidadas.
+Los mencionados bonos tendrán el tratamiento fiscal que se determina en el artículo 24.
+(Nota Infoleg: Por art. 8° de la Ley N° 25.401B.O. 4/1/2001, se dispone la cancelación de la autorización a emitir BONOS DE CONSOLIDACION EN MONEDA NACIONAL – Primera Serie y los BONOS DE CONSOLIDACION EN DOLARES ESTADOUNIDENSES – Primera Serie dispuesta en el artículo 11 de la ley 23.982.)
