@@ -1,0 +1,2 @@
+Artículo 2º.- Definición de los honorarios. Los honorarios constituyen la retribución por el trabajo y responsabilidad del profesional Geólogo en la ejecución de la tarea encomendada e incluyen el pago de los gastos generales de su oficina relacionados con el ejercicio de su profesión, el de la confección del informe respectivo, dibujos, etc.
+Los gastos adicionales originados por la encomienda de una tarea profesional deberán ser abonados por el comitente, en forma independiente de los honorarios y de acuerdo a lo que establece el Capítulo XI.

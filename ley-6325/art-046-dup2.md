@@ -1,0 +1,1 @@
+Artículo 46.- Las faltas de ética calificadas por el tribunal serán equiparadas a falta disciplinarias atentatorias de la dignidad profesional, a los efectos de la aplicación de las penalidades que comprenderán las de carácter material, que correspondan en virtud de las disposiciones contenidas en el artículo 29 del Decreto-Ley Nº 81/62, Ley Nº 3973/65.

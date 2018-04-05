@@ -1,0 +1,2 @@
+Artículo 95.- En los casos que las penas disciplinarias aplicadas al acusado de conformidad al artículo 89, sean las previstas en los incisos c), d) y e), el mismo podrá apelar ante la asamblea extraordinaria de afiliados de la resolución del consejo profesional, quien estará obligado a convocar a la citada asamblea, en el perentorio termino de veinte (20) días hábiles, para el tratamiento de la apelación del acusado.
+En la referida asamblea se garantizará la más amplia defensa del acusado.

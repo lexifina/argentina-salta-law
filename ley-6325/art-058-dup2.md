@@ -1,0 +1,2 @@
+Artículo 58.- El Jurado de Ética se constituirá por sorteo, con miembros del consejo profesional, titulares y suplentes y cuando faltaren se sortearán entre la lista de matriculados, que reúnan las condiciones requeridas para ser miembro del Consejo Profesional, establecidas en el artículo 3º del Decreto-Ley Nº 81/62 ratificado por Ley Nº 3973/65.
+Las designaciones implican carga obligatoria irrenunciable.

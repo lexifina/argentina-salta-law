@@ -1,0 +1,1 @@
+Artículo 13.- No hará figurar su nombre en informes, actividades, propaganda, etc., conjuntamente con el de personas que indebidamente figuren como profesionales o carentes de título habilitante en la profesión de Geólogo.

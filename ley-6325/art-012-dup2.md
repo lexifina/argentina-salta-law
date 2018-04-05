@@ -1,0 +1,1 @@
+Artículo 12.- No conceder su firma bajo ningún concepto, para certificar planos, especificaciones, dictámenes, memorias, informes y toda otra documentación profesional que no hayan sido realizadas personalmente.

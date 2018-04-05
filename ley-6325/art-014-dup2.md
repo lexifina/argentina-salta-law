@@ -1,0 +1,1 @@
+Artículo 14.- Abstenerse de recibir o conceder comisiones, participaciones u otros beneficios destinados a obtener o acordar designaciones de índole profesional o encomienda de trabajos profesionales. Igual concepto se aplica cuando con idénticos fines se reduce el importe de Honorarios fijados en arancel.

@@ -1,0 +1,1 @@
+Artículo 96.- Hasta los dos años de notificada la resolución del consejo profesional podrá interponerse el recurso de revisión si se descubrieran nuevos elementos probatorios, no conocidos anteriormente. Estas pruebas serán recibidas bajo la responsabilidad y fe de juramento de quien las aporta, de no haberlas conocido en la oportunidad procesal correspondiente.

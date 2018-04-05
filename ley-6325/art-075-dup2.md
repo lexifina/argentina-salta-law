@@ -1,0 +1,2 @@
+Artículo 75.- El proceso ético deberá ser promovido dentro de los dos (2) años, a contar de la fecha de la comisión del hecho. Transcurrido dicho plazo la acción quedará extinguida.
+Podrá ser iniciada por profesionales, o por terceros que tengan interés legítimo en el asunto que motive la presentación. Esta deberá ser hecha siempre por escrito, consignando domicilio real y legal y datos de identidad, profesión, oficio u ocupación.

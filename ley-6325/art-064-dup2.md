@@ -1,0 +1,1 @@
+Artículo 64.- Cualquiera de los interesados en el proceso ético podrá recursar a uno o más miembros del jurado, solamente por las causales expuestas en el artículo 63, debiendo hacerlo antes de que expire el período de prueba.

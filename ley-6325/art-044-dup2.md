@@ -1,0 +1,1 @@
+Artículo 44.- La calificación del carácter que corresponda a una falta o conjunto de faltas en que un profesional se hallare incurso es atribución del tribunal de ética profesional, quien deberá, en consecuencia, determinarlas a sus efectos.

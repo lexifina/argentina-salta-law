@@ -1,0 +1,1 @@
+Artículo 7º.- Los profesionales a quienes comprenden este Código deberán abstenerse de emitir directa o indirectamente afirmaciones o informaciones falsas o intencionadas, relacionadas con el desarrollo de sus tareas profesionales.

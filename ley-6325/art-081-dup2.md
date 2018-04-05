@@ -1,0 +1,1 @@
+Artículo 81.- La prueba deberá ser ofrecida en el mismo escrito de presentación y repuesta de la misma. El jurado decretará la producción de la prueba de cargo y de descargo en un plazo perentorio de diez (10) días hábiles, el que podrá ser ampliado hasta en cinco (5) días más cuando lo estime necesario, por razones debidamente fundadas.

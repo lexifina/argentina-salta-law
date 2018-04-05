@@ -1,0 +1,1 @@
+Artículo 42.- Incurrirá en falta de ética el profesional que cometiera transgresiones a uno o más de los deberes que se enuncian en los artículos de este código, o a los conceptos básicos del preámbulo, o a las normas y reglas a que éste alude textualmente.

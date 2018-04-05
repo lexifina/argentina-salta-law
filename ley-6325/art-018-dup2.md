@@ -1,0 +1,1 @@
+Artículo 18.- No menoscabar, difamar, denigrar, ni emitir juicios adversos sobre estos profesionales por sus actuaciones. No evacuar consultas sobre la actuación de otro profesional sin antes habérselo participado y requerido información al respecto.

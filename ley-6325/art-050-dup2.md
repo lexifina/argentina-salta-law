@@ -1,0 +1,1 @@
+Artículo 50.- El Tribunal de Ética Profesional estará integrado por tres miembros titulares y dos suplentes, que serán geólogos inscriptos en la matrícula con más de cinco (5) años de antigüedad en la misma y durarán en sus funciones dos (2) años, pudiendo ser reelegidos.

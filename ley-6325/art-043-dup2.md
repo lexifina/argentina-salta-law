@@ -1,0 +1,1 @@
+Artículo 43.- Las faltas de ética serán consideradas de carácter leves, serias, graves, gravísimas y gravísimas reiteradas, y sancionadas de acuerdo con las penalidades que se establecen en el artículo 88.

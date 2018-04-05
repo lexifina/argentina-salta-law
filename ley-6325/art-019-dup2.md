@@ -1,0 +1,1 @@
+Artículo 19.- No sustituir al colega separado de una labor profesional, sin que antes se haya hecho conocer al mismo y al consejo profesional el pedido y esa circunstancia, y se hayan satisfecho los honorarios que le correspondieran de acuerdo a la labor realizada.

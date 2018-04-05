@@ -1,0 +1,1 @@
+Artículo 53.- El Consejo Profesional de Geólogos podrá conferir al tribunal de ética la responsabilidad de continuar con las actuaciones en el caso de cuestiones menores o bien proceder a la constitución del jurado de ética.

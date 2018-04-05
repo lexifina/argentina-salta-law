@@ -1,0 +1,1 @@
+Artículo 76.- Efectuada la presentación ante el consejo profesional, éste resolverá por mayoría absoluta, si a su juicio el caso planteado implica o no una cuestión de ética profesional. Esto se hará en sesión extraordinaria con la presencia de no menos de dos (2) tercios de la totalidad de sus miembros.

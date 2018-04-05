@@ -1,0 +1,1 @@
+Artículo 52.- Si el Tribunal resolviera que el caso planteado no es de ética profesional, lo hará saber inmediatamente al presidente del Consejo para que así lo comunique al denunciante, quién dentro de los cinco días hábiles de notificado, podrá apelar de esa resolución ante el Consejo Superior Profesional, que resolverá en definitiva en sesión plenaria.

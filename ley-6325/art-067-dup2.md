@@ -1,0 +1,1 @@
+Artículo 67.- En la recusación deberá expresarse las causales de la misma, los testigos que hayan de declarar, el domicilio de éstos y la prueba instrumental de que el recurrente pretenda valerse. Cuando esta última no pueda ser acompañada, deberá ser individualizada fehacientemente e indicar el lugar preciso donde se encuentra.

@@ -1,0 +1,1 @@
+Artículo 62.- Todas las actuaciones tendrán carácter reservado para terceros; pero el fallo, sólo cuando haya quedado firme y ejecutoriado se hará conocer a los interesados, sin perjuicio de la publicidad que corresponda.

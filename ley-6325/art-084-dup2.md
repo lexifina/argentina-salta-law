@@ -1,0 +1,1 @@
+Artículo 84.- La negligencia y/o desatención y/u obstrucción de la producción de la prueba hará pasible la sanción a la parte responsable por importar falta grave, y será sancionado con la correspondiente pena disciplinaria establecida en este Código.

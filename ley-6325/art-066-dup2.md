@@ -1,0 +1,1 @@
+Artículo 66.- En los casos de licencia, enfermedad, excusación, recusación y terminación del mandato de miembros del jurado, se procederá a reemplazarlos de inmediato. Siempre se hará por sorteo en igual forma que para la integración del mismo y deberán reunir las condiciones establecidas en el artículo 58.

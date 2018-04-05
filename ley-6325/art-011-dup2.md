@@ -1,0 +1,1 @@
+Artículo 11.- Se opondrá como profesional, actuando como asesor de terceros, a las incorrecciones de estos, en cuanto atañe a las obras y tareas profesionales que tenga a su cargo, denunciando los hechos, si no puede impedir que las incorrecciones se lleven a cabo, ante el Consejo Profesional de Geólogos a los efectos que se determine.

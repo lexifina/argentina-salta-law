@@ -1,0 +1,1 @@
+Artículo 45.- La pluralidad de faltas "leves" cometidas por un profesional, en forma virtualmente sucesiva, no podrá ser calificada como tal, aunque cada una de dichas faltas, consideradas por sí solas pueda merecer esa calificación.

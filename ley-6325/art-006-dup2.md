@@ -1,0 +1,1 @@
+Artículo 6º.- Contribuir a que en el consenso público se forme y se mantenga un concepto elevado y exacto de la profesión, de su relación con los intereses generales, de la dignidad profesional y del respeto que merece.

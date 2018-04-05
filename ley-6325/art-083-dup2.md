@@ -1,0 +1,1 @@
+Artículo 83.- El jurado está facultado para pedir a las partes que amplíen su prueba, pudiendo también incorporar otras de oficio, siempre que las mismas fueren conducentes y relevantes del hecho investigado. Esto podrá hacerlo dentro de los cinco (5) días hábiles posteriores al vencimiento del período de prueba.

@@ -1,0 +1,1 @@
+Artículo 8º.- Le estará vedado emitir opiniones profesionales, dar a conocer resultados por sí mismo o emitir testimonios legales, sin haber verificado previamente el grado de perfección de la información, sobre la cual tales opiniones estén fundamentadas.

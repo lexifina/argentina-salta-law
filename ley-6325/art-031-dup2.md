@@ -1,0 +1,1 @@
+Artículo 31.- El profesional subalterno, jerárquico estará recíprocamente, con respecto al superior, en la misma obligación establecida en el artículo 23, independientemente de las obligaciones o disposiciones reglamentarias que para el caso puedan existir.

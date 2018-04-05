@@ -1,0 +1,1 @@
+Artículo 30.- El profesional jerárquico superior deberá cuidarse de adoptar actitudes o disposiciones que desprestigien, menoscaben o depriman a otro u otros colegas profesionales que ocupen cargos subalternos, que se hallen bajo sus órdenes o dependencia.

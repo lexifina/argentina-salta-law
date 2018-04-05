@@ -1,0 +1,1 @@
+Artículo 78.- El jurado de ética deberá notificar en forma fehaciente dentro de los diez (10) días hábiles al presentarse o presentantes y a la contraparte, de la resolución de abocarse al asunto de lo que quedará copia en el expediente.

@@ -1,0 +1,1 @@
+Artículo 4º.- La observancia de las leyes jurídicas que sancione el Estado y especialmente las que se refieren a esta profesión, constituirán una ineludible obligación para regir su conducta, no solamente en razón de lo que esas leyes dispongan, sino en virtud del respecto que, como reflejo de su fuero íntimo, dicha observancia signifique para la sociedad en que vive y actúa.
