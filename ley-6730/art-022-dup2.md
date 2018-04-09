@@ -1,0 +1,2 @@
+Art. 22. - - LICITACION PUBLICA - Si la autoridad de aplicación considera, por el número de transportistas interesados, que se exceden las necesidades de transporte, podrá llamar a licitación pública.
+En este caso, y a los efectos de la adjudicación de los permisos, los pliegos de bases y condiciones deberán contener pautas ajustadas a la conveniencia de favorecer el mejoramiento de la calidad, la baja de las tarifas y el incremento de la oferta.

@@ -1,0 +1,1 @@
+Art. 16. - - LISTA DE PASAJEROS - En los servicios para el turismo deberán transportarse exclusivamente pasajeros destinados a realizar la programación turística y no podrán transportarse pasajeros que no figuren en el listado u hoja de ruta confeccionado previamente.

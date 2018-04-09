@@ -1,0 +1,1 @@
+Art. 24 - - ACEPTACION - Una vez otorgado el permiso, el adjudicatario deberá concurrir a hacer efectiva la aceptación del mismo dentro de los TREINTA (30) días siguientes a la notificación fehaciente por parte de la autoridad de aplicación, bajo apercibimiento de dar por decaído su derecho.

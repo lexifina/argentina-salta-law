@@ -1,0 +1,1 @@
+Art. 46. - - VIGENCIA DE PERMISOS - Los permisos para la explotación de servicios públicos de pasajeros de carácter regular que se encuentran en vigencia o en trámite de renovación quedan automáticamente prorrogados a partir de la entrada en vigencia del presente y por el término de DIEZ (10) años.

@@ -1,0 +1,1 @@
+Art. 6º — La PROCURACION GENERAL DE LA NACION instará ante la CORTE SUPREMA DE JUSTICIA DE LA NACION la declaración de inconstitucionalidad de normas provinciales contrarias a la libertad de comercio y transporte interjurisdiccional en las causas sometidas a su resolución.

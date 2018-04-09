@@ -1,0 +1,2 @@
+Art. 18. - - PERMISOS - La explotación del servicio público de transporte automotor de pasajeros será adjudicada a través de un permiso previo, cuya vigencia tendrá un plazo de DIEZ (10) años.
+La adjudicación de un permiso bajo el régimen de servicio público, implicará para el permisionario la obligatoriedad de prestar los servicios en las condiciones establecidas por la autoridad de aplicación, y le permitirá asimismo acceder, en libertad de condiciones, a la explotación de cualquier servicio de tráfico libre de jurisdicción federal.

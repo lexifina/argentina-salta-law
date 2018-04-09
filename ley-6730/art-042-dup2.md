@@ -1,0 +1,1 @@
+Art. 42. - La autoridad de aplicación habilitará servicios pre y post aéreos de transporte automotor de pasajeros entre la Capital Federal y el aeropuerto Ministro Pistarini o desde y hacia el aeropuerto Jorge Newbery, los otros aeropuertos y los puertos nacionales dentro de las pautas de desregulación establecidas por el presente.

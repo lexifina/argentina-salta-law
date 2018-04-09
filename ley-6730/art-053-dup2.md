@@ -1,0 +1,1 @@
+Art. 53. - Los transportistas podrán realizar las comunicaciones exigidas en el presente régimen, así como los trámites en general, mediante el uso de correos u otros medios, según lo determine la autoridad de aplicación, o a través de las autoridades u organismos provinciales de acuerdo a lo establecido en el Artículo 2° de este Decreto.

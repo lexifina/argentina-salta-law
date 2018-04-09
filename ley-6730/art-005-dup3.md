@@ -1,0 +1,2 @@
+Art. 5° - - REQUISITOS - Los operadores de los servicios de transporte por automotor de pasajeros, sean personas físicas o jurídicas, deberán cubrir los requisitos que se detallan en los artículos siguientes.
+Las personas físicas extranjeras o jurídicas de capital total o parcialmente extranjero pueden realizar cualquier tipo de transporte en igualdad de condiciones con las personas argentinas bajo el régimen del presente.

@@ -1,0 +1,1 @@
+Art. 55. - Deróganse los Decretos N° 27.911/39, 1929/87, sus modificatorios y complementarios y toda otra norma que se oponga al presente. Deróganse todas las Resoluciones SECRETARIA DE TRANSPORTE del MINISTERIO DE ECONOMIA Y OBRAS Y SERVICIOS PUBLICOS que se opongan al presente.

@@ -1,0 +1,1 @@
+Art. 11. — Ninguna entidad pública o privada podrá impedir, trabar, ni obstaculizar directa o indirectamente la libre contratación de honorarios, comisiones o toda otra forma de retribución, no comprendidos en la legislación laboral o en convenios colectivos de trabajo, por la prestación de servicios de cualquier índole, cuando las partes deseen apartarse de las escalas vigentes.

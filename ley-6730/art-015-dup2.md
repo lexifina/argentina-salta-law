@@ -1,0 +1,1 @@
+Art. 15. — Autorízase la venta de especialidades medicinales en aquellos establecimientos comerciales que habiliten espacios especialmente acondicionados para funcionar como farmacias en las condiciones que determine la autoridad de aplicación de la Ley Nº 17.565.

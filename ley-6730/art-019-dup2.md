@@ -1,0 +1,1 @@
+Art. 19. — Suprímense todas las restricciones, los cupos y otras limitaciones cuantitativas a las importaciones y a las exportaciones para mercaderías, de acuerdo a lo que disponga la autoridad de aplicación.

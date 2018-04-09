@@ -1,0 +1,1 @@
+Art. 45. - - REGLAMENTACION DE LA INSCRIPCION - La autoridad de aplicación dictará las normas reglamentarias referidas a la inscripción en el Registro Nacional de los servicios de transporte ejecutivos.

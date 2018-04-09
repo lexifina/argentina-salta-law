@@ -1,0 +1,1 @@
+Art. 23. - - RENOVACION AUTOMATICA - Los permisos serán automáticamente renovados por igual período a su vencimiento, salvo que la autoridad de aplicación considere fundadamente que existen causales vinculadas al desempeño del permisionario que aconsejen la no renovación del permiso.

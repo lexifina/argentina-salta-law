@@ -1,0 +1,1 @@
+Art. 47. - - CADUCIDAD DE LOS PROCEDIMIENTOS - Declárase la caducidad de los procedimientos por los que se tramitan solicitudes de nuevos permisos, la modificación de los existentes o transferencias de permisos cualquiera sea el estado en que se encuentren las actuaciones, quedando sujetos los solicitantes al régimen del presente.

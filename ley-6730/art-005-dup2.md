@@ -1,0 +1,1 @@
+Art. 5º — Libérase y desregúlase el transporte automotor de cargas por carretera, como así también la carga y descarga de mercaderías y la contratación entre los transportistas y los dadores de carga en todo el territorio nacional, sin perjuicio de las normas de policía relativas a la seguridad del transporte y a la preservación del sistema vial.

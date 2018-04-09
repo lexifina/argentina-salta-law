@@ -1,0 +1,1 @@
+Art. 52. - La autoridad de aplicación elevará a la consideración del PODER EJECUTIVO NACIONAL dentro de los SESENTA (60) días de la entrada en vigencia del presente, un proyecto de régimen de penalidades que se adecue a las pautas del presente Decreto.

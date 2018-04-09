@@ -1,0 +1,2 @@
+Art. 4º — Suspéndese el ejercicio de las facultades otorgadas por la Ley Nº 20.680, el que solamente podrá ser reestablecido, para utilizar todas o cada una de las medidas en ella articuladas, previa declaración de emergencia de abastecimiento por el HONORABLE CONGRESO DE LA NACION, ya sea a nivel general, sectorial o regional.
+Se exceptúa de lo prescripto en el párrafo anterior las facultades otorgadas en el Artículo 2º inciso c), continuando en vigencia para este supuesto particular las normas sobre procedimientos, recursos y prescripción previstas en la mencionada Ley.

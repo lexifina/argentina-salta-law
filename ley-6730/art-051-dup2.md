@@ -1,0 +1,1 @@
+Art. 51. - La creación y puesta en funcionamiento de la COMISION NACIONAL DEL TRANSPORTE AUTOMOTOR DE PASAJEROS deberá implicar la supresión simultánea de todas aquellas dependencias de la SECRETARIA DE TRANSPORTE del MINISTERIO DE ECONOMIA Y OBRAS y SERVICIOS PUBLICOS cuyas competencias han sido atribuidas a la COMISION NACIONAL DEL TRANSPORTE AUTOMOTOR.

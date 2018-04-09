@@ -1,0 +1,1 @@
+Art. 8° - - OBJETO SOCIAL - En el caso de transporte de pasajeros, el contrato constitutivo o el estatuto societario deberá incluir como objeto social la explotación del transporte por automotor en general, o bien la mención de la prestación específica que corresponda, referida al transporte de personas.

@@ -1,0 +1,2 @@
+Art. 9° - - ZONAS DE SEGURIDAD - Exclúyese de la aplicación del régimen de Zonas de Seguridad de Fronteras a toda persona física o jurídica que realice transportes de pasajeros o cargas en el ámbito de dichas Zonas, cualquiera sea la modalidad de transporte.
+A tal efecto, no será aplicable a dichas actividades de transporte el régimen establecido por el Decreto Ley N° 15.385/44, ratificado por la Ley N° 12.913, ni el Decreto Reglamentario N° 32.530 del 21 de octubre de 1948.

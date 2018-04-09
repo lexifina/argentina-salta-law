@@ -1,0 +1,1 @@
+Art. 28. - - DEBER DE CONTINUIDAD - A fin de asegurar condiciones mínimas de regularidad y de seguridad al público usuario, y sin perjuicio de las prestaciones estacionales, los servicios de tráfico libre deberán mantenerse por el lapso de NUEVE (9) meses.

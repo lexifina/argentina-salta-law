@@ -1,0 +1,3 @@
+Art. 31. - - VIAJES ESPECIALES U OCASIONALES - Las empresas de transporte público y ejecutivo podrán realizar viajes especiales u ocasionales, sin que sea necesario un permiso especial al efecto. Periódicamente deberán comunicar a la autoridad de aplicación los viajes de este carácter que se hayan realizado.
+Los viajes especiales u ocasionales no estarán sujetos a limitaciones de kilometraje o de duración mínima o máxima.
+Cuando los viajes especiales deban cumplirse entre cabeceras que cuentan con servicios públicos o de tráfico libre, o que pueden vincularse mediante la combinación de estos servicios, no será obligatorio realizar el transporte mediante los servicios ya existentes.

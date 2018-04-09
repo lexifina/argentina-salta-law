@@ -1,0 +1,1 @@
+Art. 54. - La autoridad de aplicación, conjuntamente con el MINISTERIO DE JUSTICIA, arbitrarán las medidas conducentes a facilitar el recambio de los motores de los vehículos, y a implementar la documentación pertinente.

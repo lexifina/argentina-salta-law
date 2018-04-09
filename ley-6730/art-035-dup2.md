@@ -1,0 +1,1 @@
+Art. 35. - - LIBERTAD DE CONDICIONES - Las empresas de transporte para el turismo podrán establecer libremente los recorridos, tarifas, modalidades y las duraciones máximas o mínimas de los servicios que presten.

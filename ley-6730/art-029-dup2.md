@@ -1,0 +1,1 @@
+Art. 29. - - INFORMACIÓN ESTADÍSTICA - Los prestadores de los servicios de tráfico libre deberán brindar la información estadística respecto de los servicios que realicen, de conformidad a las pautas que determine la autoridad de aplicación.

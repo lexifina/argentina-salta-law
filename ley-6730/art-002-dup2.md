@@ -1,0 +1,1 @@
+Art. 2º — La autoridad de aplicación de la Ley Nº 22.262 podrá incorporar a su competencia y juzgar los actos y conductas excluidos por el Artículo 5º de la mencionada Ley, cuando considere que los mismos causan perjuicios reglados en las disposiciones contenidas en el Artículo 1º de la citada Ley.

@@ -1,0 +1,3 @@
+Artículo 1º.- Incorpóranse al Derecho Público Provincial, en cuanto sean compatibles, las disposiciones del Decreto Nº 2.284/91 dictado por el Poder Ejecutivo Nacional de Desregulación del comercio interior de bienes y servicios.
+Como consecuencia de ello, déjanse sin efecto en el territorio de la provincia de Salta, las restricciones a la oferta de bienes y servicios, las limitaciones a la información de los consumidores o usuarios, respecto de los precios, calidades técnicas o comerciales y otros aspectos relevantes
+relativos a bienes o servicios que se comercialicen; elimínase asimismo toda restricción, regulación o monopolización que evite la libre interacción entre la oferta y la demanda.

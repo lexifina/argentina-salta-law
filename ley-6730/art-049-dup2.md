@@ -1,0 +1,1 @@
+Art. 49. - Créase la COMISION NACIONAL DEL TRANSPORTE AUTOMOTOR DE PASAJEROS cuya estructura y estatutos serán elevados al PODER EJECUTIVO NACIONAL por la SECRETARIA DE TRANSPORTE del MINISTERIO DE ECONOMIA Y OBRAS Y SERVICIOS PUBLICOS dentro de los NOVENTA (9O) días de la entrada en vigencia de esta reglamentación.

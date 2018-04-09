@@ -1,0 +1,1 @@
+Art. 38. - - EMPRESAS DE TRANSPORTE - Las empresas de transporte de pasajeros inscriptas en el Registro Nacional, que presten servicios públicos o ejecutivos, podrán prestar servicios turísticos de acuerdo a las modalidades previstas en el presente reglamento, a cuyo efecto sólo deberán comunicar tal decisión a la autoridad de aplicación.

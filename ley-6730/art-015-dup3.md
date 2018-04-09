@@ -1,0 +1,2 @@
+Art. 15. - - SERVICIOS DE TRANSPORTE PARA EL TURISMO - El servicio de transporte para el turismo es aquel que se realiza con el objeto de atender a una programación turística.
+Se entiende por programación turística un servicio comprensivo del transporte y el alojamiento, al que pueden agregarse excursiones complementarias, visitas guiadas, servicios gastronómicos u otras prestaciones relacionadas al turismo.

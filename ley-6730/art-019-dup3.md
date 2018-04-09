@@ -1,0 +1,1 @@
+Art. 19. - - ADECUACION DEL PERMISO - La autoridad de aplicación podrá adecuar en cada permiso las exigencias de frecuencia, horarios o capacidad de transporte de acuerdo a las variaciones observadas en las ofertas de servicios o en las demandas de transportes.

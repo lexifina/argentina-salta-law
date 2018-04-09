@@ -1,0 +1,1 @@
+Art. 17. — Suprímese toda restricción de horarios y días de trabajo en la prestación de servicios de carga y descarga y toda otra tarea necesaria para el pleno funcionamiento de los puertos en forma ininterrumpida, sin perjuicio de los derechos individuales del trabajador.
