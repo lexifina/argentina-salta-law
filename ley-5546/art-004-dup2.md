@@ -1,0 +1,1 @@
+Art. 4º.- Toda designación en planta permanente tendrá carácter de provisoria, sin estabilidad, por el término de un año, al cabo del cual se convertirá en definitiva automáticamente, de no mediar instrumento legal que en forma expresa disponga lo contrario, el que será debidamente notificado al interesado con anterioridad al vencimiento de dicho plazo.

@@ -1,0 +1,1 @@
+Art. 4º.- El personal que se encontrare prestando servicios en la administración pública provincial y a la fecha de este decreto gozare de beneficio jubilatorio, quedará comprendido dentro de las previsiones del presente.

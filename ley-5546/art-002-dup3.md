@@ -1,0 +1,2 @@
+Art. 2º.- Dentro de las cuarenta y ocho horas hábiles del momento que el agente reciba la notificación de la resolución mediante la cual la autoridad previsional le acuerda su beneficio jubilatorio, el empleado deberá comunicarlo por medio fehaciente a la superioridad jerárquica.
+La omisión en la comunicación constituirá falta grave, a todos los efectos disciplinarios y patrimoniales a que hubiere lugar , a cuyo fin se dará intervención a las oficinas pertinentes.

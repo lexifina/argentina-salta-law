@@ -1,0 +1,1 @@
+Art 22 Bis 1.- Adicional por permanencia en categoría. Se abonará este beneficio a los agentes que por su situación de revista no puedan ser promovidos a la categoría inmediata superior por el sistema de calificación, en razón de haber alcanzado la máxima categoría del tramo respectivo. (Agregado por el Art. 2 de la Ley 6080/1983).

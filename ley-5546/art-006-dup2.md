@@ -1,0 +1,2 @@
+Art. 6º.- A los fines dispuestos en el artículo anterior, las Oficinas de Personal, Recursos Humanos o Unidad equivalente, deberán informar, dentro de los 15 días de la fecha del presente, la nómina de
+los agentes jubilados que continúan prestando servicios, a los efectos de promover de oficio, las actuaciones administrativas tendientes al dictado del acto administrativo que declare la extinción de la relación de empleo o, en su caso, el pase a situación de retiro del agente conforme lo establecido en el Art. 3º del presente.

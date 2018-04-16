@@ -1,0 +1,3 @@
+Art. 3º.- Recibida la comunicación a que alude el Artículo 2º del presente decreto, la Administración o el ente de que se trate, declarará extinguida la relación de empleo público que existía con el agente jubilado.
+El personal docente que hubiere accedido al beneficio previsional ordinario con arreglo a las disposiciones legales, pasará automáticamente a revestir la categoría de “retiro”, de acuerdo a las previsiones del Art. 3º, Inc. c) de la Ley Nº 6.830.
+El retiro importará relevar al docente y a la Administración del cumplimiento de las obligaciones dimanantes del vínculo jurídico preexistente.
