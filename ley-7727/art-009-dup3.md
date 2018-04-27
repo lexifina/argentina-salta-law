@@ -1,0 +1,4 @@
+ARTICULO 9º — Los Bonos de Crédito Fiscal establecidos en los artículos 6º y 7º de la presente ley no serán considerados a efectos de establecer la base imponible correspondiente al Impuesto a las Ganancias.
+Los beneficiarios podrán utilizar dichos Bonos de Crédito Fiscal para la cancelación de los tributos nacionales y sus anticipos, percepciones y retenciones, en caso de proceder.
+Los Bonos de Crédito Fiscal no podrán utilizarse para cancelar deudas anteriores a la efectiva aprobación del proyecto en los términos de la presente ley y, en ningún caso, eventuales saldos fiscales a su favor harán lugar a reintegros o devoluciones por parte del Estado.
+Los Bonos de Crédito Fiscal que emita la Autoridad de Aplicación que sean aplicados en un ejercicio fiscal, podrán imputarse a ejercicios fiscales posteriores, hasta un plazo máximo de DIEZ (10) años, contado a partir de la emisión de los mismos.

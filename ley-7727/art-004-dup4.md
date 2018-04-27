@@ -1,0 +1,3 @@
+ARTICULO 4º — Quedan excluidos de los alcances de esta ley los proyectos productivos que se desarrollen sobre la base de una patente concedida previamente a la entrada en vigencia de la presente medida. Asimismo se excluyen los proyectosproductivos que resulten de actividades de investigación y desarrollo que se realicen en el exterior.
+Tampoco serán beneficiarios de la presente ley los proyectos que involucren productos y/o procesos cuya obtención o realización se lleve a cabo mediante aplicaciones productivas convencionales y
+ampliamente conocidas, mediante procesos que utilizan organismos tal cual se presentan en la naturaleza o la obtención de nuevas variedades por medio del cruzamiento genético convencional o multiplicación convencional.

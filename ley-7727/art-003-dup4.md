@@ -1,0 +1,4 @@
+ARTICULO 3º — Beneficiarios: Podrán solicitar los beneficios de esta ley las personas físicas o jurídicas constituidas en la República Argentina que presenten proyectos en investigación y desarrollo basados en la aplicación de la biotecnología moderna en los términos del artículo 2º de la presente norma.
+Asimismo, podrán solicitar los beneficios de esta ley las personas físicas o jurídicas constituidas en la República Argentina que presenten proyectos de aplicación o ejecución de biotecnología moderna, destinados a la producción de bienes y/o servicios o al mejoramiento de procesos y/o productos.
+Los solicitantes estarán habilitados a presentar más de un proyecto y a recibir los beneficios correspondientes.
+Los beneficiarios de la presente ley deberán desarrollar las actividades descriptas precedentemente en el país y por cuenta propia, y estar en curso normal de sus obligaciones impositivas y previsionales para acceder y mantener el beneficio.

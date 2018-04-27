@@ -1,0 +1,2 @@
+ARTICULO 10. — Transcurridos tres (3) años de la inscripción en el registro de beneficiarios del Régimen de la Promoción de la Industria del Software habilitado por la autoridad de aplicación, los beneficiarios deberán contar con la certificación de calidad estipulada en el artículo 2º para mantener su condición de tales. Caso contrario, será de aplicación lo estipulado en el artículo 20 de la presente ley.
+(Artículo sustituido por art. 8º de la Ley Nº 26.692 B.O. 18/08/2011. Vigencia: a partir del día siguiente al de su publicación en el Boletín Oficial)

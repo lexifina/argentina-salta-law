@@ -1,0 +1,1 @@
+ARTICULO 25. — Facúltase a la Autoridad de Aplicación a celebrar convenios con la Ciudad Autónoma de Buenos Aires y las provincias con el objeto de facilitar y garantizar a los interesados de cada jurisdicción que se encuentren comprendidos en el artículo 3º de la presente ley, la posibilidad de acceso al presente régimen.

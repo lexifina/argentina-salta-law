@@ -1,0 +1,8 @@
+ARTICULO 18. — Los beneficiarios se comprometen a presentar, en un plazo no mayor a UN (1) año desde que el desarrollo de una invención fuera completado en el marco de la presente ley, la correspondiente solicitud de patente en el Instituto Nacional de la Propiedad Industrial, ente descentralizado en el ámbito de la Secretaría de Industria, Comercio y de la Pequeña y Mediana Empresa del Ministerio de Economía y Producción, en forma prioritaria a cualquier otra jurisdicción, siempre que la misma cumpla con los requisitos objetivos de patentabilidad según el artículo 4º de la Ley 24.481 (t.o. 1996) y su modificatoria Ley 25.859; y no se encuentre dentro de las exclusiones establecidas por los artículos 6º y 7º de la ley citada en primer término.
+Si la invención desarrollada fuese una nueva variedad fitogenética, la titularidad de la misma deberá ser registrada en el Registro Nacional de la Propiedad de Cultivares, según lo estipulan las Leyes 20.247 y 24.376 y el decreto reglamentario 2183/91.
+Cuando la invención no cumpla los requisitos de patentabilidad exigidos por la ley nacional, pero satisfaga los requisitos de patentabilidad requeridos por otros países, el titular deberá presentar la correspondiente solicitud de título de patente en un plazo no mayor a UN (1) año desde que dicha invención fuere concebida.
+Si la invención desarrollada fuese una variedad fitogenética, no protegible de acuerdo a las Leyes 20.247 y 24.376 y el decreto reglamentario 2183/ 91, pero susceptible de protección en otros países
+bajo algún título de propiedad intelectual, el titular deberá presentar la solicitud del título de propiedad que corresponda en el plazo máximo de UN
+(1) año desde que dicha invención fuese concebida.
+CAPITULO VIII
+Infracciones y sanciones

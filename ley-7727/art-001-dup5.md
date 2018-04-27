@@ -1,0 +1,1 @@
+ARTICULO 1º — Objeto: La presente ley tiene por objeto promover el desarrollo y la producción de la Biotecnología Moderna en todo el territorio nacional, con los alcances y limitaciones establecidos en ella y las normas reglamentarias que en consecuencia dicte el Poder Ejecutivo. Esta ley tendrá una vigencia de QUINCE (15) años contados a partir de su promulgación.

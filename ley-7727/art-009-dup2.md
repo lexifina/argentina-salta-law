@@ -1,0 +1,2 @@
+ARTICULO 9° — Los beneficiarios de la presente ley tendrán una reducción del sesenta por ciento (60%) en el monto total del impuesto a las ganancias correspondiente a las actividades promovidas determinado en cada ejercicio. Dicho beneficio será aplicable tanto a las ganancias de fuente argentina como a la de fuente extranjera, en los términos que establezca la autoridad de aplicación.
+(Artículo sustituido por art. 7º de la Ley Nº 26.692 B.O. 18/08/2011. Vigencia: a partir del día siguiente al de su publicación en el Boletín Oficial)

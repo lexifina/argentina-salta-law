@@ -1,0 +1,2 @@
+ARTICULO 11. — Los beneficiarios de la presente ley deberán llevar su contabilidad de manera tal, que permita la determinación y evaluación en forma separada del proyecto promovido del resto de las actividades desarrolladas por los mismos a través de declaraciones juradas que den cuenta del estado del avance de los proyectos.
+La imputación de gastos compartidos con actividades ajenas a las promovidas se atribuirá contablemente respetando criterios objetivos de reparto.
