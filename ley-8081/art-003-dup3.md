@@ -1,0 +1,3 @@
+Art. 3° - El Certificado de Baja y Desarme previsto en el Artículo 3° de la Ley deberá ser emitido en papel con las medidas de seguridad, diseño y cantidad de ejemplares que determine la DIRECCION NACIONAL DE LOS REGISTROS NACIONALES DE LA PROPIEDAD DEL AUTOMOTOR Y DE CREDITOS PRENDARIOS. En él constará un detalle de las piezas del automotor que, dentro de las indicadas en el listado que elabore la SECRETARIA DE
+INDUSTRIA, COMERCIO Y DE LA PEQUEÑA Y MEDIANA EMPRESA por aplicación del
+Artículo 6° de la Ley, podrán ser recuperadas y las que, dentro del mismo listado, no son aptas para su utilización.
