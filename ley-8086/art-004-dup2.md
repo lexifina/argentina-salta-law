@@ -1,0 +1,1 @@
+ARTÍCULO 4º.- El presente decreto será refrendado por la señora Ministra de Producción, Trabajo y Desarrollo Sustentable, por el señor Ministro de Economía, por el señor Ministro de Salud Pública, por el señor Ministro de Gobierno, Derechos Humanos y Justicia, por el señor Ministro de Cultura, Turismo y Deportes, y por el señor Secretario General de la Gobernación.
