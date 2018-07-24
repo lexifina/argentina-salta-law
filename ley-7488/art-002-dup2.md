@@ -1,0 +1,7 @@
+ARTÍCULO 2º — El Gobierno nacional, antes del 31 de agosto de cada año, presentará ante el Consejo Federal de Responsabilidad Fiscal creado por la presente ley, el marco macrofiscal para el siguiente ejercicio, el cual deberá incluir:
+a) Los resultados previstos —resultado primario y financiero— base devengado para el sector
+público de cada nivel de Gobierno.
+b) Las proyecciones de recursos de origen nacional detallando su distribución por régimen y por
+provincia y Ciudad Autónoma de Buenos Aires.
+c) La política salarial e impositiva que espera implementar y las proyecciones de las variables
+que se detallan a continuación: precios, producto bruto interno y tipo de cambio nominal. El índice de precios al consumidor debe contar con cobertura nacional publicado por el Instituto Nacional de Estadística y Censos. (Art. sustituido por art. 1º de la Ley 27.428)

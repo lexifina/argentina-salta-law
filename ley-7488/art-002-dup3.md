@@ -1,0 +1,1 @@
+Art. 2º - El cálculo de recursos de un ejercicio deberá basarse en la ejecución presupuestaria del ejercicio previo más las modificaciones de política tributaria, tanto a nivel nacional, provincial como municipal, impulsadas o previstas ejecutar en el ejercicio fiscal y detallando las variables y factores que se tienen en cuenta para su previsión.

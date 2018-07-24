@@ -1,0 +1,1 @@
+Art. 20º - El presente plan se instrumentará a través de acuerdos bilaterales, los que deberán ser aprobados por el Concejo Deliberante correspondiente y serán implementados en la medida de las posibilidades financieras del gobierno provincial, garantizando siempre la sustentabilidad de su esquema fiscal y financiero, y el cumplimiento de sus compromisos suscriptos.

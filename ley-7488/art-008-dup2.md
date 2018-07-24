@@ -1,0 +1,1 @@
+Art. 8º - Los municipios deberán ejecutar sus presupuestos preservando el equilibrio fiscal. Dicho equilibrio se medirá como la diferencia entre los recursos percibidos – incluyendo dentro de los mismos a los de naturaleza corriente y de capital – y los gastos devengados – incluyendo los gastos corrientes y de capital.

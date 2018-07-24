@@ -1,0 +1,1 @@
+Art. 5º - No podrán crearse fondos u organismos que impliquen gastos que no consoliden en el presupuesto general o no estén sometidos a las reglas generales de ejecución presupuestaria.

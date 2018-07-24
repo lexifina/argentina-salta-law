@@ -1,0 +1,1 @@
+Art. 17º - Los municipios no podrán incluir en sus respectivos presupuestos como aplicación financiera (amortización de deuda) gastos corrientes y de capital que no se hayan devengado presupuestariamente en ejercicios anteriores.

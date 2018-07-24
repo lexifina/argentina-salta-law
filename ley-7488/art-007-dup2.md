@@ -1,0 +1,2 @@
+Art. 7º - Los municipios sólo podrán, durante la ejecución presupuestaria, aprobar mayores gastos de sus Concejos Deliberantes siempre que estuviera asegurada la fuente de financiamiento especial, destinada a su atención. Asimismo, no podrán aprobar modificaciones presupuestarias que impliquen incrementos en los gastos corrientes en detrimento de los gastos de capital o de las aplicaciones financieras.
+Capítulo III: Equilibrio Fiscal

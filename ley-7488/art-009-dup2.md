@@ -1,0 +1,1 @@
+Art. 9º - Cuando los niveles de deuda generen servicios superiores a los establecidos por el Consejo Provincial de Políticas Municipales, deberán presentarse y ejecutarse presupuestos con superávit acordes con planes que aseguren la progresiva reducción de la deuda y la consiguiente convergencia a los niveles antes definidos.

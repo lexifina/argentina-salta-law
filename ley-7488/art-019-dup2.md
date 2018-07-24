@@ -1,0 +1,1 @@
+Art. 19º - En el marco del presente Programa el gobierno provincial crea el Plan de Solvencia Fiscal, destinado a aquellos Municipios que observen pautas de comportamiento fiscal y financiero compatibles con el presente decreto.

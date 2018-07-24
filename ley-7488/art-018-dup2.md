@@ -1,0 +1,2 @@
+Art. 18º - Los municipios sólo podrán acceder a operaciones de crédito y otorgar garantías y avales, con la previa autorización del Ministerio de Finanzas y Obras Públicas, para lo cual deberán remitir a dicho Ministerio los antecedentes y la documentación correspondiente, quien efectuará un análisis a fin de autorizar tales operaciones, conforme a los principios del presente decreto.
+Capítulo VI: Plan de Solvencia Fiscal

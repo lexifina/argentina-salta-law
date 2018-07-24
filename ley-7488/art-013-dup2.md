@@ -1,0 +1,1 @@
+Art. 13º - Cada municipio informará a la provincia al 31 de Diciembre de cada año el Presupuesto Anual aprobado. Con un rezago de un (1) trimestre, elevarán información trimestral de la ejecución presupuestaria, del stock de la deuda pública, incluida la flotante como así también su financiamiento, y del pago de servicios.
