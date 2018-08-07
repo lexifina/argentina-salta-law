@@ -1,0 +1,1 @@
+Artículo 1º - (Art. 1º Ley Nº 7.623).Las condiciones económicas que establece la Ley son las que, como mínimo, deben contener o a las que deben adecuarse los instrumentos o actos por los cuales se otorgue o se haya otorgado la explotación de los inmuebles rurales indicados en el artículo 1º.
