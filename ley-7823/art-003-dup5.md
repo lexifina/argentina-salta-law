@@ -1,0 +1,1 @@
+ARTÍCULO 3º: Los instrumentos y contratos que se firmen en el marco de los beneficios establecidos en el artículo 9, inciso b), de la Ley Nº 7823 deberán ser comunicados a la Dirección General de Inmuebles para su registro correspondiente.

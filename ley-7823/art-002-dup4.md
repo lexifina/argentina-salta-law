@@ -1,0 +1,1 @@
+Artículo 2º: Dispónese que los beneficiarios del presente régimen deberán presentar el proyecto de inversión de que se trate ante la Secretaría de Energía, debiendo cumplir con los requisitos que la Autoridad de Aplicación establezca al efecto.

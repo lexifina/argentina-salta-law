@@ -1,0 +1,1 @@
+Artículo 9º: Una vez aprobados los “CCF”, representarán un crédito a favor de los beneficiarios por los tributos para los que fueron emitidos. La Dirección General de Rentas de la Provincia los incorporará en sus sistemas informáticos, pudiendo los beneficiarios utilizarlos o cederlos a terceros contribuyentes.

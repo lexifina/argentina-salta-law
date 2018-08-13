@@ -1,0 +1,1 @@
+Artículo 7º: Las exenciones previstas en el artículo 9o inc. a) de la ley que se reglamenta, sólo alcanzarán al proyecto que se enmarque en la actividad que se promueve y que haya obtenido la correspondiente aprobación por parte de la Autoridad de Aplicación.

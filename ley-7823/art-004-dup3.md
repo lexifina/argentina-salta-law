@@ -1,0 +1,1 @@
+Artículo 4º: El Ministerio de Ambiente y Producción Sustentable a través de la ^Secretaría de Energía, evaluará los distintos aspectos del proyecto, como así también, el cumplimiento de los requisitos necesarios para su aprobación.

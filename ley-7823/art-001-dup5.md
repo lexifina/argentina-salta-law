@@ -1,0 +1,1 @@
+ARTÍCULO 1º: Decláranse prioritarias y de interés a las zonas identificadas como Alto Andina-Puna-Prepuna y Valles Calchaquíes de la Provincia de Salta, para el desarrollo de proyectos de generación de energía eléctrica fotovoltaica, ello de conformidad a lo previsto por el artículo 12 de la Ley Nº 7823.

@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- El presente decreto será refrendado por el señor Jefe de Gabinete de Ministros, el señor Ministro de Ambiente y Producción Sustentable, el señor Ministro de Hacienda y Finanzas y el señor Secretario General de la Gobernación.
