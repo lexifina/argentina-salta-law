@@ -1,0 +1,6 @@
+Art. 4° - Obligaciones. Establécese que el otorgamiento del adicional por Función Especial Control Higiénico Sanitario implica para los agentes que resulten beneficiarios del mismo, el cumplimiento de las siguientes obligaciones:
+a) Jornada Laboral habitual. El cumplimiento de una jornada diaria de trabajo mínima de ocho (8) horas diarias, con turnos rotativos de conformidad con el cronograma que defina el titular del Programa Ley 6902, a efectos de garantizar la cobertura de servicios durante las veinticuatro (24) horas del día, todos los días del año.
+b) Disponibilidad Permanente. La disponibilidad en forma permanente, fuera del horario habitual de trabajo, para todos los requerimientos que el titular del Programa Ley 6.902 - Registro de Operadores de la Carne, realice en relación con las necesidades de servicio del organismo.
+c) Capacitación. La obligación de asistir a las actividades de capacitación, dentro o fuera del horario de trabajo, que el titular del Programa Ley 6902 estime necesarias o convenientes para mejorar la prestación de servicios del organismo.
+d) Evaluación de desempeño. El cumplimiento de las normas de evaluación de desempeño que oportunamente sean dictadas por la autoridad competente en la materia.
+e) Demás obligaciones que la reglamentación establezca.

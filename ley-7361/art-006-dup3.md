@@ -1,0 +1,1 @@
+Art. 6º - Reglamentación. El Ministerio de Ambiente y Producción Sustentable y la Secretaría General de la Gobernación dictarán las normas complementarias, reglamentarias y de aplicación del presente decreto.

@@ -1,0 +1,1 @@
+Art. 7º - Valor y vigencia del adicional. Establécese que el valor del adicional por "Función Especial Control Higiénico Sanitario" así como el momento de su entrada en vigencia, serán fijados por resolución conjunta de los señores Ministro de Ambiente y Producción Sustentable, Ministro de Economía, Infraestructura y Servicios Públicos y Secretario General de la Gobernación.

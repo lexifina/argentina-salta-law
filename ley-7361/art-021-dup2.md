@@ -1,0 +1,1 @@
+Artículo 21º - El Servicio Integrado de Control Higiénico Sanitario se hará efectivo en los Puestos de Control que posee la Provincia de Salta, en las cámaras frigoríficas habilitadas a tal fin, o en cualquier otro lugar que establezca la Autoridad de Aplicación a los fines de un acabado contralor en todo el territorio de jurisdicción provincial.

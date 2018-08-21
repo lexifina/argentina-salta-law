@@ -1,0 +1,2 @@
+Artículo 13º - El Servicio Integrado de Inspección Higiénico Sanitaria será ejecutado por la Autoridad de Aplicación, debiendo en los casos del último párrafo del artículo 3º del presente decreto, unificar y coordinar los procedimientos de control con los respectivos municipios, en base
+a las políticas que dicho organismo defina de acuerdo a lo previsto en el Titulo I de la presente reglamentación.

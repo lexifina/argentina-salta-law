@@ -1,0 +1,1 @@
+Art. 2º - Autoridad de Aplicación. Será autoridad de aplicación del adicional por "Función Especial Control Higiénico Sanitario", el Programa Ley 6.902 - Registro de Operadores de la Carne de la Secretaría de Asuntos Agrarios, dependiente del Ministerio de Ambiente y Producción Sustentable.

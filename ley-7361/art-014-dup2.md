@@ -1,0 +1,1 @@
+Artículo 14º - La Autoridad de Aplicación, a los fines de la presente ley, deberá establecer planes de inspección sobre los establecimientos faenadores, elaboradores de productos y subproductos de origen animal, ubicados en territorio provincial, los que se ejecutarán por el Servicio Integrado de Inspección Higiénico Sanitaria.

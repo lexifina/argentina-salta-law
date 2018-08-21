@@ -1,0 +1,1 @@
+Artículo 2º - Facúltase, a la Autoridad de Aplicación celebrar convenios, con organismos públicos o privados, municipales, provinciales, nacionales o internacionales a fin de ejecutar sus funciones, estableciendo acciones de manera coordinada que se consideren necesarias para la eficaz aplicación de la presente reglamentación.

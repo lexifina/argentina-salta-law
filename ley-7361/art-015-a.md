@@ -1,0 +1,1 @@
+Artículo 15º - A los fines de las tareas de inspección, el Servicio Integrado de Inspección Higiénico Sanitaria se regirá por la Ley Provincial Nº 6902, su Decreto Reglamentario Nº 2017/97, y las normas que dicte la Autoridad de Aplicación.

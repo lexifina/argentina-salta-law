@@ -1,0 +1,1 @@
+Artículo 20º - Queda establecido que el Servicio Integrado de Control Higiénico Sanitario de productos, subproductos de las especies bovina, ovina, porcina, equina y caprina, a todo el que introduzca o distribuya, o bien el que realice ambas actividades dentro del territorio provincial.

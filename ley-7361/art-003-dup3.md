@@ -1,0 +1,1 @@
+Artículo 3º - Déjase establecido que el Servicio Integrado de Inspección Higiénico-Sanitario tiene como fundamento la centralización de políticas y normas que regulan el control higiénico sanitario, para un adecuado ejercicio del poder de policía sanitario en toda la Provincia.

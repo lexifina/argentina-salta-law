@@ -1,0 +1,3 @@
+Artículo 17º - La tasa establecida en el Art. 8º de la Ley Nº 7361 debe ser abonada mensualmente en las formas y plazos que establezca la Autoridad de Aplicación. Se considerará que el incumplimiento previsto en el Artículo 11º de la Ley 7361 se produce por la falta de pago de dos declaraciones juradas correspondientes a la tasa de inspección veterinaria prevista en el artículo 7 de la norma mencionada, debiendo proceder la Autoridad de Aplicación al levantamiento del servicio de inspección a partir de la constatación del incumplimiento.
+Capítulo II
+Tareas de Inspección Veterinaria - Funciones

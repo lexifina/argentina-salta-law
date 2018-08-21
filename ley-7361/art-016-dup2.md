@@ -1,0 +1,1 @@
+Artículo 16º - Los establecimientos federales que hayan sido suspendidos o inhabilitados por el organismo competente nacional se regirán por la presente reglamentación, previo cumplimiento de los requisitos establecidos en la normativa provincial vigente.

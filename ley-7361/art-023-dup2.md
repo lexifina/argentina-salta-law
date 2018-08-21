@@ -1,0 +1,1 @@
+Artículo 23º - Verificado y fiscalizado por la Autoridad de Aplicación el cumplimiento de la normativa higiénico sanitaria provincial y nacional vigente, se procederá a precintar el transporte en las aberturas del mismo.

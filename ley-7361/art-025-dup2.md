@@ -1,0 +1,1 @@
+Artículo 25º - Prohíbase la comercialización o donación de las carnes, productos y subproductos, de las especies bovina, ovina, porcina, equina y caprina, decomisados y calificados no aptos para consumo, los que deberán ser desnaturalizados de inmediatos.
