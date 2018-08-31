@@ -1,0 +1,1 @@
+Artículo 2º - La Secretaría de la Gobernación de Seguridad, delega la facultad, al Sr. Jefe de Policía, de otorgar las licencias habilitantes y aplicar las sanciones que pudieren corresponder, mediante la resolución respectiva.

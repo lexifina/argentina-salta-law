@@ -1,0 +1,2 @@
+Artículo 12 - Las distribuidoras, tendrán imperativamente la obligación de exigir a los comercios la licencia habilitante, previo a efectuar el abastecimiento de bebidas alcohólicas. Así también los transportistas de éstas, deberán poseer fotocopia certificada de la licencia de la distribuidora que lo habilita para esta actividad, la que será exhibida a la autoridad de aplicación cuando le sea requerida.
+Requisitos

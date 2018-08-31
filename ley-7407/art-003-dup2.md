@@ -1,0 +1,1 @@
+Artículo 3º - Para el cumplimiento de lo establecido en el artículo anterior, le corresponde, a la Policía de la Provincia de Salta, el control operativo de los comercios que funcionan en todo el territorio provincial, con la facultad de disponer la clausura preventiva del local comercial.

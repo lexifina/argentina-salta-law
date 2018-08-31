@@ -1,0 +1,1 @@
+Artículo 5º - Los locales y/o distribuidores que exhiban, comercialicen y suministren bebidas alcohólicas, no al copeo, deberán contar con la licencia habilitante para ello y encontrarse inscriptos en el Registro Provincial de Establecimientos Expendedores de Bebidas Alcohólicas.

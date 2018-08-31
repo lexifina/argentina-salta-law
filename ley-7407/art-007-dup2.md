@@ -1,0 +1,1 @@
+Artículo 7º - Entiéndase por licencia, al documento escrito que otorgará la Policía de la Provincia de Salta, por el término de un año, a los propietarios y/o responsables de locales comerciales que se dediquen a la exhibición, comercialización y suministro de bebidas alcohólicas envasadas. (Anexo I).
