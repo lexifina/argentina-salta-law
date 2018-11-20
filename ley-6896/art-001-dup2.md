@@ -1,0 +1,2 @@
+Artículo 1º.- Obsérvase parcialmente el Proyecto de Ley sancionado por las Cámaras Legislativas en Sesión realizada el día 5 de setiembre del año en curso, por el cual se agrega párrafos a continuación del artículo 32 de la Ley Nº 6.830 “Estatuto del Ecuador de la Provincia”, ingresado
+bajo Expediente Nº 91-5.837/96 referente, en fecha 10-09-96, en lo que respecta a los apartados a, b y c del artículo 1º y los artículos 2º, 4º y 5º.
