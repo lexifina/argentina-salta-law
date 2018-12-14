@@ -1,0 +1,2 @@
+Art. 2º - Con encuadre en artículo 133 y concordantes de la Constitución Provincial y artículo 11 de la Ley Nº 7.190, sugiérese al Poder Legislativo sustituir el segundo apartado del primer párrafo del artículo 5º del proyecto, por el siguiente:
+"Cuando la denuncia fuere recepcionada en sede judicial ante Juez incompetente o en sede extrajudicial, la misma deberá ser comunicada inmediatamente al Juez competente en lo Civil de Personas y Familia en turno y al Asesor de Incapaces, en su caso, bajo apercibimiento de incurrir en delito."

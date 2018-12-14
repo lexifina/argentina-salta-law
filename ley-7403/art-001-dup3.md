@@ -1,0 +1,3 @@
+Artículo 1º - Con encuadre en lo previsto por los artículos 144, inc. 4), 131, 133 y concordantes de la Constitución Provincial, y 11 de la Ley Nº 7.190, obsérvase parcialmente, en los términos contenidos en los considerandos, el Proyecto de Ley sancionado por las Cámaras Legislativas, en sesión de fecha 1º de agosto de 2006, mediante el cual se ha dado sanción definitiva al Proyecto de Ley sobre Protección de Víctimas de Violencia Familiar, ingresado a la Secretaría General de la Gobernación el 8 de agosto bajo Expediente Nº 90-16.321/06 - Referente, según se expresa a continuación:
+En el artículo 5º, primer párrafo, segundo apartado: vétase la frase:
+“…Cuando la denuncia no fuere recepcionada en sede judicial...”.
