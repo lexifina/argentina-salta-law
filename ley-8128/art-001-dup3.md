@@ -1,0 +1,1 @@
+Artículo 1º - Ratifícase el Acta Complementaria del Convenio de Transferencia del Sistema Provincial de Previsión Social, relativo al Régimen de Retiros y Pensiones del Personal Policial y Penitenciario de la Provincia de Salta, celebrada entre la Provincia de Salta y la Nación en fecha 28 de Diciembre del año 2005, cuyo texto se adjunta formando parte del presente.
