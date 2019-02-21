@@ -1,0 +1,1 @@
+ARTICULO 1°.- Prorrógase desde su vencimiento y por el término de un año, la vigencia de la Ley 7.125, así como sus sucesivas prórrogas y los períodos acordados en dichas normas.
