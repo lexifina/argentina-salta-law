@@ -1,0 +1,2 @@
+Art. 4º.- Los incrementos del patrimonio declarado que obedezcan a las causas señaladas en el artículo 5º), incisos d), e) y f), de la Ley, serán denunciados dentro de los treinta días (30) en que los hechos tengan concreción física o legal, indicándose la procedencia conforme a la norma dada por el artículo 2º de la Ley. De igual modo se procederá en los casos de disminuciones del patrimonio.
+PROCEDIMIENTO PARA LA VALUACIÓN DEL PATRIMONIO

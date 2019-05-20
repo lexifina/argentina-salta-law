@@ -1,0 +1,1 @@
+Artículo 1º.- Además de los indicados en los artículos 1º y 2º de la Ley Nº 3382, quedan sometidos a sus disposiciones todos los funcionarios o empleados que por prescripción legal o reglamentaria sean reemplazantes naturales de aquellos en sus cargos y los Contadores Fiscales del Tribunal de Cuentas.

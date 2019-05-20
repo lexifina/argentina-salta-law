@@ -1,0 +1,2 @@
+Art. 6º.- Dentro de los quince días de la fecha de este decreto, la Contaduría General de la Provincia presentará a la Escribanía de Gobierno una nómina de las personas obligadas por la Ley Nº 3382.
+Vencidos los plazos que se establecen para la presentación de las declaraciones juradas, la Escribanía de Gobierno comunicará a la autoridad superior en cada Poder y al Tribunal de Cuentas los casos de incumplimiento, a los efectos previstos en el artículo 6º de la ley.
