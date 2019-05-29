@@ -1,0 +1,1 @@
+Art. 3° - El Instituto Nacional de las Mujeres es autoridad de aplicación de la presente ley.
