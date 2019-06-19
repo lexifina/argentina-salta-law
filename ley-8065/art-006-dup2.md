@@ -1,0 +1,4 @@
+ARTICULO 6º — Obligatoriedad. Toda actuación profesional en el ámbito médico-sanitario, sea público o privado, requiere, con carácter general y dentro de los límites que se fijen por vía reglamentaria, el previo consentimiento informado del paciente.
+En el supuesto de incapacidad del paciente, o imposibilidad de brindar el consentimiento informado a causa de su estado físico o psíquico, el mismo podrá ser dado por las personas mencionadas en el artículo 21 de la Ley 24.193, con los requisitos y con el orden de prelación allí establecido.
+Sin perjuicio de la aplicación del párrafo anterior, deberá garantizarse que el paciente en la medida de sus posibilidades, participe en la toma de decisiones a lo largo del proceso sanitario.
+(Artículo sustituido por art. 3° de la Ley N° 26.742 B.O. 24/5/2012)

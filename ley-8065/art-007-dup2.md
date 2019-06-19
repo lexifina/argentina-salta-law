@@ -1,0 +1,7 @@
+ARTICULO 7º — Instrumentación. El consentimiento será verbal con las siguientes excepciones, en los que será por escrito y debidamente suscrito:
+a) Internación;
+b) Intervención quirúrgica;
+c) Procedimientos diagnósticos y terapéuticos invasivos;
+d) Procedimientos que implican riesgos según lo determine la reglamentación de la presente ley;
+e) Revocación.
+f) En el supuesto previsto en el inciso g) del artículo 5° deberá dejarse constancia de la información por escrito en un acta que deberá ser firmada por todos los intervinientes en el acto. (Inciso incorporado por art. 4° de la Ley N° 26.742 B.O. 24/5/2012)
