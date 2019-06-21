@@ -1,0 +1,3 @@
+Artículo 1º.- Conforme a lo establecido en los artículos 131 y 144, inciso 4) de la Constitución Provincial y en el artículo 11 de la Ley Nº 7.190, obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas, en sesión de fecha 27 de diciembre de 2002, mediante el cual se promueve las micro, pequeñas y medianas empresas, mediante la acción concurrente o coordinada de la Provincia y los municipios, ingresado bajo Expediente Nº 91-9.997/02 Referente, en fecha 27/12/02, suprimiéndose en carácter de veto:
+ La frase del artículo 6º, que reza: “a que refiere el artículo 9º”.
+ El texto completo de los artículos 4º, 8º, 9º y 11.
