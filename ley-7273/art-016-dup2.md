@@ -1,0 +1,4 @@
+Art. 16º: La Dirección de Comunicaciones e Informática deberá otorgar una constancia de verificación técnica del equipo de comunicaciones que utilicen las Empresas de Seguridad y Vigilancia Privada, la que será remitida a la División de Control de Empresas de Seguridad Privada, para a ser agregada al legajo de la misma, previa autorización por el órgano competente del uso de frecuencia de trabajo, en caso de corresponder. En relación a las Empresas de Sistemas de Alarmas y de las Empresas de Seguridad Informática, homologará el uso de los elementos enumerados en el art. 3 inc. e) de la Ley Nº 7.273, como así también acreditará la existencia de dichos equipos en el domicilio denunciado por la empresa como sede de la misma.
+La utilización de equipos, sin la debida autorización, o que no se encuentren en el domicilio denunciado como sede de la empresa, será considerado falta grave.
+TÍTULO IX
+VEHÍCULOS

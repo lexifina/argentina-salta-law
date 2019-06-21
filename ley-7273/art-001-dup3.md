@@ -1,0 +1,2 @@
+Artículo 1º.- Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión realizada el 24 de febrero del corriente año, destinado a regular las actividades relativas a la Seguridad Privada, conforme a lo establecido en los artículos 131 y 144, inciso 4 de la Constitución Provincial y en el artículo 11 de la Ley Nº 7.190, ingresado bajo Expediente Nº 90-14.153/04, en fecha 26/02/04, en los siguientes artículos por los motivos expuestos en los considerandos de este instrumento:
+―Artículo 10: En el primer párrafo, la palabra «...únicos...».

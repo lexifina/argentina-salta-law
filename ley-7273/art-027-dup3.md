@@ -1,0 +1,1 @@
+Art. 27º.- La acreditación de la habilitación de los controladores ante lo empleadores, se hará a través de la presentación del respectivo carnet profesional, extendido por la autoridad de aplicación.

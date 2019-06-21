@@ -1,0 +1,1 @@
+Art. 4º.- Los límites del derecho de admisión y permanencia son el respeto a la dignidad de las personas y los derechos fundamentales reconocidos en la Constitución Nacional; especialmente en el artículo 16 en cuanto se refiere a la igualdad de los habitantes ante la Ley, Constitución de la Provincia de Salta, y artículo 46 bis del Código de Contravenciones de la Provincia.

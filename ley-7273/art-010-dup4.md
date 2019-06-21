@@ -1,0 +1,2 @@
+Art. 10º: La empresa deberá remitir copia del legajo de antecedentes a la Autoridad de Control, dentro de las 48 hs. de producida el alta del personal, a los efectos de incorporarse al legajo dispuesto por el art. 19º inc. c) de la presente reglamentación. En igual término deberá poner en
+conocimiento toda modificación que se produzca en el legajo que debe llevar la misma. Su incumplimiento será considerado falta grave.

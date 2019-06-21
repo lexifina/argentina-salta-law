@@ -1,0 +1,10 @@
+Art. 1º: A los efectos de la Ley Nº 7.273, se considerarán como Empresas y/o Agencias, en forma indistinta, de conformidad a su objeto, las siguientes:
+1. Empresas y/o Agencias de Investigaciones. Se constituirán como tales las que tengan por objeto la investigación dispuesta en el art. 3 inc. a) de la Ley Nº 7.273.
+2. Empresas y/o Agencias de Vigilancia. Conformarán esta categoría las que tengan por objeto la vigilancia dispuesta en el art. 3º inc. b) de la Ley nº 7.273, con excepción de las empresas dedicadas al transporte de caudales y de custodias personales detalladas en el art. 4º de la citada ley.
+3. Empresas y/o Agencias de Estudio y Planificación de Seguridad. Bajo esta denominación se encontrarán comprendidas las empresas que tengan por objeto los estudios, análisis y proyectos dispuestos en el art. 3 inc d) de la Ley Nº 7.273.
+4. Empresas de Sistemas de Alarmas. Conformarán esta categoría las empresas que provean seguridad mediante los sistemas enunciados en el art. 3 inc. e) de la Ley Nº 7.273 y la Resolución Nº 316/06 de la Secretaría de la Gobernación de Seguridad.
+5. Empresas de Seguridad Informática. Se configurarán como tales las que tengan por objeto la seguridad informática a la que se hace referencia en el art. 3 inc. f) de la Ley Nº 7.273.
+6. Empresas de Transporte de Caudales Públicos y/o Privados. Se considerarán comprendidas dentro de esta categoría a las personas físicas o comerciales que desarrollen servicios de transporte de caudales y de custodia personal, de conformidad a lo dispuesto en el art. 4 de la Ley Nº 7.273.
+7. Empresas de Custodios Personales. Serán las referidas en el art. 3 inc. c) y art. 4 de la Ley Nº 7.273.
+8. Empresas con Servicios Propios de Control Interno. Llevarán esta denominación las enunciadas en al art. 38 de la Ley Nº 7.273.
+9. Empresas de Capacitación. Se encontrarán dentro de esta categoría los institutos de enseñanza, entidades públicas o privadas con reconocimiento oficial, debidamente autorizadas al efecto por la Autoridad de Aplicación, y tendrán por objeto capacitar personal de seguridad, función a la que hace referencia el Título VI, arts. 18 a 21 de la Ley Nº 7.273.

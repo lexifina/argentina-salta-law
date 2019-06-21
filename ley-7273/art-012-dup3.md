@@ -1,0 +1,1 @@
+Art. 12º.- Las altas o habitaciones de las personas físicas serán otorgadas por la Autoridad de Aplicación, previo cumplimiento de los requisitos exigidos por la Ley Nº 26.370 y el presente reglamento; debiendo remitir al Registro Nacional de Empresas y Trabajadores de Control y Admisión y Permanencia, la inscripción del personal habilitado.

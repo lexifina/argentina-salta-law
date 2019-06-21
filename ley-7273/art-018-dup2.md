@@ -1,0 +1,1 @@
+Art. 18º: El informe deberá realizarse y remitirse a la División de Control de Empresas de Seguridad Privada. El incumplimiento a la obligación de informar, será considerado falta grave. En el supuesto que el incumplimiento implique la omisión de poner en conocimiento un hecho ilícito cometido por sus dependientes, será considerado falta gravísima.

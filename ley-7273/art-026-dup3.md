@@ -1,0 +1,1 @@
+Art. 26º.- Las empresas que presten los servicios de control de admisión y permanencia, deberán ser habilitadas por la Autoridad de Aplicación, observándose las previsiones de la Ley Provincial Nº 7.273/04 y su Decreto Reglamentario.

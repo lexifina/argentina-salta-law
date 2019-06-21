@@ -1,0 +1,7 @@
+Art. 29º.- Los titulares de los establecimientos de entretenimiento público, en relación al artículo 29 de la Ley Nacional 26.370/08, deberán:
+1. Sin reglamentar.
+2. Además, el empleador deberá acreditar que contrató un seguro de riesgos contra terceros que cubra la actividad que desarrollará el dependiente, póliza que deberá encontrarse en vigencia mientras subsista el vínculo laboral con el controlador.
+3. La apertura del libro de novedades será responsabilidad del titular del establecimiento y/o evento. Al realizar la apertura del libro, que debe estar rubricado por la autoridad de aplicación de cada jurisdicción, se colocará en el folio 1º, la razón social de la empresa prestadora si la hubiese y el listado del total de los controladores con los datos requeridos por el artículo 13 de la Ley Nacional 26.370/08. Cada vez que se produzca un cambio en la prestadora y/o de los controladores, se asentará en el libro mencionado, aclarando fecha y hora.
+4. En el interior del local, a no más de Un (1) metro de distancia del acceso principal se colocará una cartelera, debidamente iluminada y en tipografía con caracteres mayúsculos de fácil lectura, que indicará por orden alfabético el apellido y nombre de todos los controladores. En el caso de tratarse de un trabajador de una prestadora de control de admisión y permanencia, se colocará además, la razón social de la misma en la parte superior de la cartelera. En la parte inferior deberá transcribirse el texto de la Ley de Actos Discriminatorios Nº 23.952.
+5. Sin reglamentar.
+6. Sin reglamentar.

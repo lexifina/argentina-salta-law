@@ -1,0 +1,1 @@
+Art. 28º.- En eventos y espectáculos musicales, artísticos y de entretenimiento en general que se lleven a cabo en lugares abiertos donde no esté predeterminada la cantidad de concurrentes autorizados, se deberá informar con Setenta y Dos (72) horas de anticipación a la autoridad de aplicación la cantidad de entradas que se pondrán a la venta con la correspondiente justificación.
