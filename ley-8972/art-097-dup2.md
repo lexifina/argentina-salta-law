@@ -1,0 +1,3 @@
+Artículo 97.- Locación de inmuebles. (Art. 68 Ley 8.072)
+En todos los casos en que se sustancie la locación de un inmueble, se acumularán como elementos de juicio la valuación fiscal, fijada a los efectos del impuesto inmobiliario y el título que justifique la calidad del locador.
+Asimismo, en todos los casos en que se sustancie la locación de un inmueble deberá agregarse al expediente, como elemento de juicio, un informe referente al valor locativo de aquél, el cual deberá requerirse a la Unidad Central de Contrataciones, a los efectos de que analice la valuación estimativa de mercado según las características y ubicación del inmueble a locar.

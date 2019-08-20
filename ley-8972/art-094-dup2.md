@@ -1,0 +1,7 @@
+Artículo 94.- Locación de inmuebles. (Art. 68 Ley 8.072)
+Toda entidad que necesite para su funcionamiento alquilar inmuebles deberá acreditar necesidades objetivas para el normal y oportuno cumplimiento de las actividades esenciales del organismo
+DECRETO Nº
+contratante, dejándose constancia de las mismas en el expediente.
+La unidad operativa de contrataciones deberá efectuar invitaciones a cotizar, por cualquier medio escrito o electrónico a tres inmobiliarias locales, dejándose constancia de las mismas en el expediente. En dichas invitaciones se fijará una fecha y hora límite para recibir las propuestas y se acompañarán las bases de la contratación. Las invitaciones a cotizar deberán ser efectuadas con una antelación mínima de diez (10) días hábiles a la fecha límite fijada para la recepción de las propuestas.
+La unidad operativa de contrataciones deberá difundir la contratación en el sitio de internet del Gobierno de la Provincia, a partir del día en que se cursen las invitaciones a cotizar y con una antelación mínima de diez (10) días hábiles a la fecha límite fijada para la recepción de las propuestas. Las ofertas se presentarán y recibirán de igual manera que en la adjudicación simple.
+La unidad operativa de contrataciones emitirá un informe basado en el cuadro comparativo de ofertas, por el cual recomendará la resolución a adoptar para concluir el procedimiento y la autoridad competente emitirá el acto administrativo que requiere el presente procedimiento y por el cual se dará por concluido el mismo.

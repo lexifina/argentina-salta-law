@@ -1,0 +1,5 @@
+Artículo 91.- Pago. (Art. 66 Ley 8.072)
+Cualquiera sea la forma establecida para efectuar los pagos, los plazos se comenzarán a contar a partir del día siguiente al que se produzca la conformidad definitiva de la factura, de acuerdo a lo estipulado en la presente reglamentación.
+El término fijado se interrumpirá si existieran observaciones sobre la documentación pertinente u otros trámites a cumplir imputables al co contratante.
+Cuando en las cláusulas particulares se prevea el "pago contra entrega" se entiende que el pago debe efectuarse después de operada la conformidad definitiva de la recepción.
+Descuentos especiales por pago adelantado: sólo se admitirá esta modalidad como alternativa, cuando el oferente ofrezca descuentos por pago adelantado, lo que podrá ser aceptado por la Administración, siempre y cuando su oferta original hubiera resultado la más conveniente en el plazo fijado en el pliego para el pago, previa autorización de la Secretaría de Finanzas en relación a dicha forma de pago por adelantado y constitución de contragarantía por el monto total adjudicado.

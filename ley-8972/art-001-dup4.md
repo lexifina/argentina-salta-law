@@ -1,0 +1,4 @@
+Artículo 1°.- Objeto y ámbito de aplicación. (Art. 1° Ley 8.072)
+Los contratos que se celebren en todo el ámbito del sector público provincial y municipal se ajustarán a las prescripciones contenidas en la Ley del Sistema de Contrataciones de la Provincia, el presente Reglamento, sus disposiciones complementarias y las comprendidas en las respectivas cláusulas particulares que establezcan los organismos contratantes.
+Los poderes y organismos mencionados en el segundo párrafo del artículo 1° de la Ley
+podrán dictar normas operativas que en sus respectivos ámbitos instrumenten la aplicación de la Ley 8.072, las que, con el fin de lograr homogeneidad, centralización normativa y de políticas en materia de contrataciones del Estado, no podrán apartarse del espíritu de la presente Reglamentación General.

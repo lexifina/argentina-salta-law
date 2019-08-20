@@ -1,0 +1,11 @@
+Artículo 78.- Registro General de Contratistas de la Provincia. (Art. 56 Ley 8.072)
+En ejercicio de sus facultades, la Unidad Central de Contrataciones, será competente para:
+Disponer la inscripción en los registros de quienes así lo solicitan, conformando los respectivos legajos de antecedentes, quedando para ello, facultada para verificar la exactitud de la documentación presentada y requerir todo asesoramiento técnico que considere necesario de los organismos pertinentes o de su agentes, de las entidades profesionales, de entidades intermedias y de cualquier otra persona humana o jurídica.
+a) Solicitar todos los informes que estime convenientes a organismos internacionales,
+nacionales, provinciales y municipales, entidades bancarias, comerciales, técnicas y de otra naturaleza, a fin de conocer los antecedentes, comportamiento, solvencia, capacidad crediticia y todo otra información de relevancia, de las personas inscriptas y a inscribirse en los registros, ello exclusivamente para una correcta calificación y categorización de los inscriptos o de los que tramiten su inscripción.
+b) Estará facultada para efectuar inspecciones integrales a las personas inscriptas o que
+soliciten su inscripción, cuando lo crea conveniente, pudiendo también controlar los contratos en ejecución, en cuyo caso las empresas facilitarán todos los elementos necesarios que les sean requeridos. La oposición injustificada a los trámites de inspección para las personas ya inscriptas, importará una falta sancionable, mientras que para los casos de personas en trámite de inscripción, provocará el archivo de las actuaciones sin más trámite.
+c) En los supuestos de inscripción de contratistas de obra públicas, deberá categorizar, clasificar y
+calificar a cada postulante, de acuerdo a las normas que a tal efecto deberá dictar.
+d) El funcionario encargado de los registros confeccionará y someterá a la aprobación del titular de
+la Unidad Central de Contrataciones, un manual interno de funcionamiento y propondrá un procedimiento de registración sujeto a principios de economía, simplicidad, eficiencia, eficacia y leal información pública. Asimismo, propondrá los métodos de evaluación de capacidad de contratación y la vigencia de la inscripción.
