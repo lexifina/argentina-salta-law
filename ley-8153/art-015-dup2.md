@@ -1,0 +1,1 @@
+ARTÍCULO 15.- El INCUCAI, con la participación de las Sociedades Científicas afines a la temática, elaborará los programas de capacitación, a fin de ser utilizados para las capacitaciones dispuestas en el artículo que se reglamenta.

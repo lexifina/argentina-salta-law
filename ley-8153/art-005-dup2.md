@@ -1,0 +1,3 @@
+ART. 5°- Los actos médicos referidos al proceso de donación y trasplantes contemplados en esta ley deben ser realizados por médicos o equipos de profesionales de salud registrados y habilitados al
+efecto por ante la respectiva autoridad de contralor jurisdiccional, conforme los requisitos exigidos al respecto por el INCUCAI. La autoridad de contralor jurisdiccional es responsable por los perjuicios que se deriven de la inscripción de personas que no hubieren cumplido con tales recaudos.
+Los profesionales del equipo de salud deben proporcionar toda la información en la forma y modo en que sea solicitada en relación con la actividad para la que hayan sido autorizados.

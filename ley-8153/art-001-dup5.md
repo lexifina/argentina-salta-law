@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Objeto. El Poder de Policía Sanitaria referido a la obtención y utilización de órganos, tejidos y células de origen humano, se hará efectivo por las Autoridades Sanitarias Locales, sin perjuicio de las competencias acordadas al INSTITUTO NACIONAL CENTRAL ÚNICO COORDINADOR DE ABLACIÓN E IMPLANTE (INCUCAI) por la Ley Nº 27.447.

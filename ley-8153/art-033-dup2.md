@@ -1,0 +1,3 @@
+ARTÍCULO 33. – Requisitos para la obtención de órganos y/o tejidos de donante fallecido. El profesional a cargo deberá brindar a los familiares o allegados del fallecido presentes en el establecimiento, la información necesaria vinculada al proceso de donación.
+En el supuesto previsto en el último párrafo del artículo 33 de la Ley, además de suministrar la información referida anteriormente, el profesional deberá corroborar la ausencia de expresión negativa del causante, conforme lo establecido en el PROTOCOLO DE ACTUACIÓN, tratado por la COMISIÓN FEDERAL DE TRASPLANTE (COFETRA) y aprobado por la Resolución INCUCAI Nº 54/2018.
+De todo lo actuado se deberá dejar constancia en la historia clínica del fallecido.

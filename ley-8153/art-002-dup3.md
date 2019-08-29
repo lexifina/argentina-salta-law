@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- Facúltase a la Secretaría de Gobierno de Salud dependiente del MINISTERIO DE SALUD Y DESARROLLO SOCIAL para dictar las normas complementarias y aclaratorias de la presente reglamentación.

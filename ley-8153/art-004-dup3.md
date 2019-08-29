@@ -1,0 +1,7 @@
+ARTÍCULO 4°.- Comuníquese, publíquese, dése a la DIRECCIÓN NACIONAL DEL REGISTRO OFICIAL y archívese.
+MACRI-Peña-Stanley
+ANEXO I
+REGLAMENTACIÓN DE LA LEY DE TRASPLANTE DE ÓRGANOS,
+TEJIDOS Y CÉLULAS N° 27.447
+CAPÍTULO I
+Disposiciones Generales
