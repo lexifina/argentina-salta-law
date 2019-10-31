@@ -1,0 +1,1 @@
+ARTÍCULO 1° - El objeto de la presente ley es promover la salud mediante la actividad física, con una mirada holística, en el marco de las políticas públicas sobre prevención y control de enfermedades crónicas no transmisibles y de todas otras aquellas que ayuden al bienestar total de la persona.
