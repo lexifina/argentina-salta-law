@@ -1,0 +1,2 @@
+Artículo 22.- (Reglamentación del artículo 17 de la Ley N° 8164).
+La Dirección General de Recursos Energéticos y Mineros de la Provincia, o el organismo que en el futuro la reemplace, se encuentra facultada a verificar que el cumplimiento de las compras y contrataciones efectuadas a proveedores locales sea de acuerdo al porcentaje establecido en el artículo 17 de la Ley N° 8164, pudiendo solicitar toda la documentación que estime necesaria a tales efectos.
