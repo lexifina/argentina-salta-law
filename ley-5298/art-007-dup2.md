@@ -1,0 +1,6 @@
+Art. 7º.- Exclusión del Fuero de Atracción. El concurso preventivo, quiebra, concurso civil u otro medio de liquidación colectiva de los bienes del empleador, no atrae a las acciones judiciales que tenga promovidas o promoviere el trabajador por créditos u otros derechos provenientes de la relación laboral; éstas se iniciarán o continuarán ante los tribunales del fuero del trabajo, con
+intervención de los respectivos representantes legales, cesando su competencia con la etapa de conocimiento, debiendo iniciarse o proseguirse las ejecuciones ante el juez del concurso, conforme a los procedimientos previstos por las leyes para estos casos.
+La sucesión del empleador no atrae las acciones previstas en el primer párrafo de este artículo, que se tramitarán del mismo modo y con intervención de los respectivos representantes legales, incluso en los trámites de ejecución salvo el caso de concurso.
+Las actuaciones del trabajador en el fuero civil y comercial, que se realicen con motivo de lo dispuesto en este artículo, gozarán de las mismas franquicias impositivas legisladas para el fuero laboral, pudiendo hacerse representar por acta-poder, con los recaudos señalados en esta ley.
+Capítulo II
+Disposiciones Generales

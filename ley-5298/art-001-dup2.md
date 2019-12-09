@@ -1,0 +1,2 @@
+Artículo 1º.- Órganos. La Justicia del Trabajo de la Provincia de Salta, estará organizada de acuerdo con las disposiciones de la presente ley, y supletoriamente, por la Ley Orgánica de los Tribunales de la Provincia.
+Se ejercerá por la Cámara de Apelaciones del Trabajo; los Jueces de Primera Instancia del Trabajo; y de los miembros del Ministerio Público con competencia laboral. (Párrafo sustituido por el Art. 1 de la Ley 6530/1988)

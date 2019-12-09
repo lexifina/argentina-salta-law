@@ -1,0 +1,5 @@
+Art. 12.- Falta de domicilio constituido. Si la persona debidamente citada no compareciere o no
+constituyere domicilio, las providencias que se deben notificar en el domicilio constituido quedarán notificadas por ministerio de la ley.
+Aún cuando se hubiere constituido un domicilio inexistente o desapareciera el local elegido, el acto
+se tendrá por notificado en el momento en que se practicare la diligencia y, en lo sucesivo, las
+notificaciones se considerarán realizadas por ministerio de la ley.

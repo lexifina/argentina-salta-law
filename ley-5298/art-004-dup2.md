@@ -1,0 +1,1 @@
+Art. 4º.- Jueces de Paz Legos. Cuando el valor de lo cuestionado no exceda de diez mil pesos, será juez competente para conocer en la causa, a opción del trabajador; el juez de primera instancia del trabajo o el juez de paz lego que corresponda.

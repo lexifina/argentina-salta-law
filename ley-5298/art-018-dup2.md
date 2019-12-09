@@ -1,0 +1,2 @@
+Art. 18.- Acta - Poder. La representación en juicio se podrá ejercer mediante acta - poder otorgado ante escribano, secretarios de juzgado o de cámara del fuero del trabajo, juez de paz lego o funcionario competente de la Dirección Provincial del Trabajo, en el caso de los letrados designados por dicha repartición.
+En todos los casos, firmarán el funcionario y el otorgante, previa acreditación de la entidad de éste. En caso de impedimento, podrá firmar a ruego del otorgante, cualquier persona hábil.
