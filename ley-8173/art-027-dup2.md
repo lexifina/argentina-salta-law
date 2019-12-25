@@ -1,0 +1,3 @@
+ARTÍCULO 27.- Frente a una causal de remoción o de incompatibilidad o inhabilidad del Director de la Agencia de Acceso a la Información Pública, el PODER EJECUTIVO NACIONAL deberá iniciar el procedimiento previsto para su remoción.
+Una vez iniciado el procedimiento, se correrá traslado al Director de la Agencia de Acceso a la Información Pública de la causal de remoción que se le imputa para que en el término de DIEZ (10) días efectúe su descargo y ofrezca la prueba pertinente.
+Efectuado el descargo, o vencido el plazo, y producida en su caso la prueba, el PODER EJECUTIVO NACIONAL dará intervención a la Comisión Bicameral del HONORABLE CONGRESO DE LA NACIÓN prevista en el artículo 27 de la Ley N° 27.275 para que dictamine sobre la remoción impulsada.

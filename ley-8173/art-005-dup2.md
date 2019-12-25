@@ -1,0 +1,3 @@
+ARTÍCULO 5°.- La información debe ser brindada en el estado en el que se encuentre al momento de efectuarse la solicitud, no estando obligado el sujeto requerido a procesarla o clasificarla.
+El Estado tiene la obligación de entregarla en formatos digitales abiertos, salvo casos excepcionales en que fuera de imposible cumplimiento o significara un esfuerzo estatal desmedido. Las excepciones las fijará la Agencia de Acceso a la Información Pública.
+Gratuidad.

@@ -1,0 +1,3 @@
+ARTÍCULO 4°.- Legitimación activa. Requisitos formales de la solicitud: a la persona humana o jurídica, pública o privada, al momento de efectuar una solicitud únicamente se le podrán solicitar los siguientes requisitos:
+a. En caso de tratarse de una persona humana, su nombre y apellido, documento de identidad, domicilio y correo electrónico;
+b. En caso de tratarse de una persona jurídica, la razón social y C.U.I.T. y la identificación de su representante en los términos del inciso a). Adicionalmente, copia del poder legalizado vigente que acredite su condición de representante o autorizado a tales efectos.

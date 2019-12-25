@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Adhiérese la Provincia a los Decretos Nacionales Nº 206/2.017 y Nº 780/2.024 de Reglamentación de la Ley Nº 27.275 de Derecho de Acceso a la Información Pública, con las adecuaciones estipuladas en los siguientes artículos.

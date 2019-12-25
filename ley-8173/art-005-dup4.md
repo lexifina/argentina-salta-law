@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- A los efectos de la presente reglamentación, se entenderá por formatos digitales abiertos a aquellos formatos que mejor faciliten su utilización, procesamiento y redistribución por parte del solicitante.

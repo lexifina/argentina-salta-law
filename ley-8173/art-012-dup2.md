@@ -1,0 +1,1 @@
+ARTÍCULO 12.- En caso de hacer uso del sistema de tachas, la máxima autoridad del sujeto obligado deberá fundamentar los motivos por los cuales la información no entregada se enmarca en alguna de las excepciones del artículo 8° de la Ley N° 27.275.

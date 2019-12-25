@@ -1,0 +1,22 @@
+ARTÍCULO 7°.- Reglaméntase el primer párrafo del artículo 32 de la Ley N° 27.275 y su modificatoria, e incorpórase como artículo 32 al Anexo I del Decreto N° 206 del 27 de marzo de 2017 y su modificatorio el siguiente texto:
+"ARTÍCULO 32.- Transparencia activa. Cuando una solicitud versare sobre información que se encuentre publicada en una página oficial de la red informática, esta se tendrá por satisfecha con la sola remisión a esa página. En caso de tratarse de información de actualización periódica, además de remitir al portal, se deberá indicar que este se encuentra sujeto a actualizaciones".
+a) Sin reglamentar.
+b) Sin reglamentar.
+c) Sin reglamentar.
+d) Sin reglamentar.
+e) Sin reglamentar.
+f) Sin reglamentar.
+g) Sin reglamentar.
+h) Sin reglamentar.
+i) Sin reglamentar.
+j) Sin reglamentar.
+k) Sin reglamentar.
+l) Sin reglamentar.
+m) Sin reglamentar.
+n) Sin reglamentar.
+o) Sin reglamentar.
+p) Sin reglamentar.
+q) Sin reglamentar.
+r) Sin reglamentar.
+s) Sin reglamentar.
+t) Sin reglamentar".

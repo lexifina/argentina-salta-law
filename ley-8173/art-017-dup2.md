@@ -1,0 +1,1 @@
+ARTÍCULO 17.- a) Sin reglamentar b) En caso de corresponder, la Agencia de Acceso a la Información Pública requerirá al sujeto obligado que en el plazo de DIEZ (10) días hábiles fundamente adecuadamente la decisión o ponga a disposición del interesado la información.

@@ -1,0 +1,4 @@
+ARTÍCULO 3°.- Alcance de las definiciones.
+a) Información Pública: No se entenderá como información pública a aquella que contenga datos de naturaleza privada que fueran generados, obtenidos, transformados, controlados o custodiados por personas humanas o jurídicas privadas o por la ausencia de un interés público comprometido, ajenos a la gestión de los sujetos obligados enumerados en el artículo 7° de la Ley N° 27.275 y su modificatoria.
+b) Documento: La definición de documento establecida en la Ley Nº 27.275 y su modificatoria debe entenderse referida a todo registro que haya sido generado, que sea controlado o que sea custodiado en el marco de la actividad estatal.
+Las deliberaciones preparatorias y papeles de trabajo, o el examen preliminar de un asunto, no serán considerados documentos de carácter público.

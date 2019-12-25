@@ -1,0 +1,4 @@
+ARTÍCULO 6°.- Los sujetos obligados deberán entregar la información de forma totalmente gratuita, excepto en aquellos casos en que estuviesen autorizados expresamente por la normativa vigente a cobrar un arancel o equivalente en concepto de contraprestación por el servicio brindado.
+En caso de que los sujetos obligados posean una versión electrónica de la información solicitada, deberán enviarla al particular sin costo alguno o ponerla a su disposición, comunicándole a éste los datos que le permitan acceder a la misma.
+De no existir versión electrónica, podrán reproducir la información solicitada en copias simples, medios magnéticos, ópticos, sonoros, visuales, holográficos u otros medios. En esos supuestos, los costos de reproducción correrán a cargo del solicitante, y el pago respectivo deberá hacerse previamente a la reproducción de la información.
+El costo de reproducción deberá ser establecido periódicamente por la Agencia de Acceso a la Información Pública.
