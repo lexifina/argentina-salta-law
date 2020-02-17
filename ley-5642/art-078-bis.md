@@ -1,0 +1,1 @@
+Art 78 Bis.- Tribunales Colegiados. Salas. La Corte de Justicia podrá asignar un orden numérico a las vocalías que integran las salas de los tribunales colegiados. (Incorporado por Art 1 de la Ley 7535/2008).
