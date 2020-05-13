@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- La Delegación de Asuntos Indígenas será el organismo encargado del planeamiento y coordinación de los programas y actividades que se efectúen en el marco del presente, quedando a cargo del titular de dicha Delegación la Presidencia de la Mesa Interministerial.

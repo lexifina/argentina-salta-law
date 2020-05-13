@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Prorrógase, desde su vencimiento y por el término de noventa (90) días, la declaración de estado de emergencia sociosanitaria en los Departamentos San Martín, Orán y Rivadavia dispuesta por la Ley Nº 8.185.
