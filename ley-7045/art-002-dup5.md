@@ -1,0 +1,2 @@
+Art. 2: A los efectos del presente reglamento, se entiende por Turismo Alternativo al turismo que no es el tradicional y/o convencional, llamado también Turismo Activo o de Aventura, que implica viajes cuya motivación principal es la práctica de actividades turístico – recreativas en contacto directo con la naturaleza y las expresiones culturales de un modo sustentable con la actitud y compromiso de conocer, respetar, disfrutar y participar de la protección del patrimonio natural y cultural del sitio visitado.
+Del Ambito de Aplicación.

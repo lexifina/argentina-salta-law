@@ -1,0 +1,1 @@
+ART. 14.- El emprendimiento será presentado ante la Escribanía de Gobierno, quién deberá foliar y dejar constancia de fecha y hora de presentación y extender al emprendedor certificación de lo presentado.

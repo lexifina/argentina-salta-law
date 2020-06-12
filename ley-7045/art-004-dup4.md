@@ -1,0 +1,1 @@
+Art. 4: Se denomina Operadores de Turismo Alternativo a los fines de esta reglamentación a las Agencias de Viajes y Empresas de Viajes y Turismo que se encuentren inscriptos en el Registro de Agencias de Viajes que lleva el organismo de aplicación de la Ley Nacional Nº 18.829 y presten actividades de Turismo Alternativo.

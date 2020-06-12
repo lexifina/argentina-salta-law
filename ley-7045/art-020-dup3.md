@@ -1,0 +1,1 @@
+Art. 20: A quienes presten, oferten y/o comercialicen servicios de Turismo Alternativo sin estar Registrados o estando Registrados presten actividades no habilitadas, se les intimará al cese inmediato de la actividad y corresponderá la aplicación de sanciones.

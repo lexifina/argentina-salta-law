@@ -1,0 +1,1 @@
+Art. 7: La opción de pago voluntario, en todas sus variantes, no podrá ser ejercida en los casos de reincidencia, por hechos cometidos en el trascurso de un año calendario. (Artículo modificado por Resolución 513/2012)

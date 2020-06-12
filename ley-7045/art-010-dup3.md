@@ -1,0 +1,2 @@
+ART. 10.- (Reglamentario del Art. 15): Instrumento de Promoción Las solicitudes efectuadas respecto a cualquiera de los instrumentos de promisión previsto en el Artículo 15 de la Ley Nº 7045, deberán ajustarse, bajo pena de desestimación, a las áreas, rutas y/o actividades incluidas en el programa de promoción dispuesto anualmente por el Poder Ejecutivo con arreglo a lo establecido en el Artículo 11 de la Ley Nº 7045.
+INSTRUMENTO DE PROMOCIÓN

@@ -1,0 +1,1 @@
+ART. 15.- En el plazo de cuarenta y ocho (48) horas de recibido el emprendimiento turístico, el Escribano de Gobierno remitirá el original a la Secretaría de la Gobernación de Turismo, dejándose constancia de ello en el Libro de Protocolo.

@@ -1,0 +1,1 @@
+Art. 10: Los interesados que posean expedientes y/o sumarios en trámite ante la Autoridad de Aplicación podrán acogerse al régimen de pago voluntario dentro de los 30 (treinta) días corridos de su publicación, para lo cual deberán cumplir con los requisitos establecidos en la presente Resolución, bajo apercibimiento de continuar las tramitaciones sumariales.

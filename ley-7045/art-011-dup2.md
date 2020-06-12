@@ -1,0 +1,2 @@
+Art. 11.- Obsérvese parcialmente el mismo, suprimiendo de su primer párrafo el texto que reza: “...(área de alta promoción, área de promoción intermedia y área de promoción normal)”, como así también la última parte de dicho artículo, quedando redactado de la siguiente manera:
+“Art. 11.- Será responsabilidad del Poder Ejecutivo Provincial definir las áreas y rutas de desarrollo y promoción turísticas, previo estudio específico coherente con la política provincial de desarrollo turístico.”

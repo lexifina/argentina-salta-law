@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- Beneficios. Todo inmueble inscripto en el Registro podrá ser incluido en la publicidad oficial y en programas de difusión y oferta promovidos por el Gobierno de la Provincia. Asimismo, los sujetos mencionados en el artículo 1° podrán recibir asistencia, información y asesoramiento brindado por la Autoridad de Aplicación para el desarrollo de la actividad.

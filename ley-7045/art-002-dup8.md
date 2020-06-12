@@ -1,0 +1,1 @@
+Art. 2: La opción para acogerse a dicho régimen deberá ser ejercida por el interesado, en forma escrita, dentro del plazo para realizar el pertinente descargo, según la actividad de que se trate y/o el plazo para la presentación del recurso de revocatoria o reconsideración. (Artículo modificado por Resolución 513/2012)

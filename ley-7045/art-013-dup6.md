@@ -1,0 +1,2 @@
+Art. 13: Para los casos de certificaciones de idoneidad, el órgano de aplicación podrá convocar a una Junta Evaluadora, que estará integrada por dos representantes del Ministerio de Turismo y Cultura, un representante de la asociación que represente a Operadores y Prestadores de Turismo Alternativo y los especialistas que resultasen necesarios en atención a la actividad a que se pretende habilitar. La autoridad de aplicación realizará la convocatoria al efecto.
+De las Actividades

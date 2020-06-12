@@ -1,0 +1,5 @@
+ART. 3.- (Reglamentario del Art. 6) Es competencia de la autoridad de aplicación estudiar los factores de la demanda, a efectos de orientar el desarrollo de la actividad turística local.
+La autoridad de aplicación deberá proponer al Poder Ejecutivo Provincial lineamientos generales y particulares a considerar para la elaboración y ejecución de políticas de desarrollo turísticos, fundados en un análisis cuantitativo y cualitativo de los requerimientos del mercado de la demanda nacional e internacional.
+Para el cumplimiento de sus funciones, la autoridad de aplicación deberá ajustar su accionar a los principio de centralización de políticas y normas; desconcentración operativa o de funciones; de eficiencia y economía en la utilización de los recursos estaduales.
+En ningún caso la desconcentración funcional u operativa incorporara la delegación de potestades. La desconcentración se circunscribirá únicamente a la ejecución de operaciones o actividades materiales orientadas al desarrollo del turismo.
+DEL CONSEJO

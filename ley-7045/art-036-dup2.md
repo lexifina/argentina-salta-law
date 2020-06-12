@@ -1,0 +1,1 @@
+ART. 36.- Los servicios a prestar por dichas empresas se convendrán en todos los casos por contrato homologado por la Secretaria de Turismo, quién para el caso podrá solicitar la intervención de otro organismo, para mayor seguridad del servicio.

@@ -1,0 +1,1 @@
+Artículo 1: Es objeto del presente reglamento establecer los requisitos para la prestación de servicios de Turismo Alternativo (Activo o de Aventura), integrando los elementos de calidad, la seguridad y el ambiente.

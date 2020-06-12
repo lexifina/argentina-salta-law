@@ -1,0 +1,1 @@
+ART. 37.- Las tarifas serán comunicadas a la Secretaría de Turismo, con una anticipación no menor de diez (10) días de su entrada en vigencia. Dichas empresas estimarán tentativamente el período de vigencia de las mismas haciéndolo conocer al mencionado organismo.

@@ -1,0 +1,1 @@
+Art. 3: Al ejercer la opción, el interesado quedará obligado a abonar el 50 % (cincuenta por ciento) del monto de la multa que le correspondería por la infracción que para cada caso establecen las normas previstas en el artículo primero, y cuyo monto será determinado por la Autoridad de Aplicación. (Artículo modificado por Resolución 513/2012)

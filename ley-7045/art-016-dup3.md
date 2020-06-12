@@ -1,0 +1,1 @@
+Art. 16: Los Operadores y Prestadores de Turismo Alternativo están obligados a comunicar al Ministerio de Turismo y Cultura toda modificación que implique alteración a lo declarado en la solicitud de Habilitación y/o renovación, en el plazo de veinticuatro (24) horas de acontecida la modificación.

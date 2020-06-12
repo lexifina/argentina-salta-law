@@ -1,0 +1,7 @@
+ART. 23.- (Reglamentario del Art. 35) Constatada que fuere una falta a la Ley Nº 7045, esta reglamentación o las normativas técnicas de calidad que en su consecuencia se dicten, sea de oficio a través de denuncia expresa, se dará traslado por el plazo de 10 (diez) días al infractor para que formule descargo y ofrezca prueba.
+Vencido el término acordado sin que el infractor formule descargo o, vencido el plazo de producción de pruebas, la autoridad de aplicación se pronunciará fundadamente. El infractor contará con los plazos legales y recursos previstos en la Ley Nº 5348 para requerir la decisión adoptada.
+Consentido que fuere la resolución sin que el infractor efectuare deposito de las multas pertinentes, la autoridad de aplicación derivará la misma a Fiscalía de Estado para que proceda al cobro compulsivo de la misma a través del procedimiento más breve establecido en la normativa procesal vigente.
+Ningún prestador o intermediario de servicios turísticos tendrá derecho a la renovación anual de los registros y certificación de calidad si previamente no hubiese saldado las multas aplicadas por su inconducta.
+Ningún prestador o intermediario de servicios turísticos tendrá derecho a la renovación anual de los registros y certificación de calidad si previamente no hubiese saldado las multas aplicadas por su inconducta.
+Será de aplicación supletoria en todo lo que no fuere expresamente establecido en el presente reglamento, las disposiciones de la Ley 5348.
+DE LA HABILITACIÓN Y FUNCIONAMIENTO DE RENT A CARS

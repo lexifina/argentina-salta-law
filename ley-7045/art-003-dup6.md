@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- Inspecciones. La Autoridad de Aplicación, deberá practicar inspecciones en los inmuebles comprendidos en las disposiciones del presente decreto, a fin de velar por el adecuado cumplimiento del mismo y de las previsiones de seguridad para las personas y los bienes.

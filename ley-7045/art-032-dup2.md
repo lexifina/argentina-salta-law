@@ -1,0 +1,1 @@
+ART. 32.- Todo personal será capacitados con los conocimientos básicos en la actividad turística, debiendo como mínimo en cada turno de trabajo encontrarse por lo menos una persona con conocimientos de idioma.

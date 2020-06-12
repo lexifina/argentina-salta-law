@@ -1,0 +1,2 @@
+ART. 20.- Los beneficios serán acordados mediante instrumento expreso del Poder Ejecutivo Provincial y solo podrán acordarse beneficios provisorios si, cumplidos que fueren los recaudos formales establecidos en el presente reglamento, el emprendedor prestare garantía real con arreglo a lo estatuido en el Art. 19 de la Ley Nº 7045 y mediare dictamen favorable fundado de la autoridad de aplicación, aconsejando la conveniencia del dictado del acto administrativo pertinente.
+DE LOS PRESTADORES E INTERMEDIARIOS

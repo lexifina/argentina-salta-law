@@ -1,0 +1,1 @@
+ART. 31.- Los responsables de dicho local deberán comunicar al organismo de aplicación con quince días hábiles de antelación, el cierre provisorio y/o definitivo del mismo, como así también la transferencia, venta o cesión del mismo.

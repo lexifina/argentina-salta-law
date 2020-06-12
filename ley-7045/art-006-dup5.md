@@ -1,0 +1,2 @@
+Art. 6: El incumplimiento en el pago de cualquier opción ejercida por el interesado en término, da lugar a la Autoridad de Aplicación a determinar de oficio la caducidad del procedimiento del pago voluntario y requerirá al infractor, para que en el plazo perentorio de 5 (cinco) días, proceda al pago
+del 50 % (cincuenta por ciento) restante de la multa, bajo apercibimiento de no poder ejercer la opción por el procedimiento de pago voluntario – por cualquier incumplimiento - mientras permanezca en su condición de moroso. (Artículo modificado por Resolución 513/2012)

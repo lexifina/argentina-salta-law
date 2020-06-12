@@ -1,0 +1,1 @@
+Art. 10: Para la renovación de la habilitación deberá cumplimentarse con lo establecido en el artículo 7 de la presente, debiendo presentarse con treinta días de anticipación a su vencimiento la solicitud de renovación. Previo al otorgamiento de esta deberá acreditarse el cumplimiento de toda sanción que se encuentre firme y presentar evaluación de satisfacción del cliente.

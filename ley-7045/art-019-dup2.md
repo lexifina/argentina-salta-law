@@ -1,0 +1,2 @@
+ART. 19.- Para lo supuesto en que los beneficios consistieren en las transferencia, locación, constitución de derechos reales, cesión o cualquiera de las figuras jurídicas previstas en el Artículo
+11 para los bienes inmuebles del dominio privado del Estado, deberá darse intervención al Programa de Tierras Fiscales Rurales y a la Dirección General de Inmuebles, o los organismos que en el futuro de reemplacen.

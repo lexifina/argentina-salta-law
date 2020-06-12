@@ -1,0 +1,1 @@
+ART. 29.- Las empresas interesadas en prestar este tipo de servicios y que hayan cumplimentado con la documentación pertinente, serán habilitadas por el Ministerio de Turismo y Cultura e inscriptas en el Registro creado al efecto. (Modificado por el Art. 1 del Decreto Nº 2112/2010).-
