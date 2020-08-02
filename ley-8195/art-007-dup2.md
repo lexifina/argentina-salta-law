@@ -1,0 +1,4 @@
+Artículo 7º.- (Reglamentación del artículo 4º de la Ley Nº 8.195).
+Al término de la vigencia de los beneficios, el beneficiario deberá presentar, hasta el último día hábil del mes siguiente, la documentación indicada en los incisos c) y d) del artículo 1º de la presente por los periodos comprendidos el mes de Julio de 2020 y hasta la fecha de finalización de la vigencia del beneficio de que se trate.
+Ante la constatación fehaciente del incumplimiento por parte del beneficiario de lo dispuesto por el artículo 4º de la Ley, caducarán de pleno derecho todos los beneficios otorgados, debiendo la Autoridad de Aplicación emitir el acto administrativo que así lo declare, e informara a todos los organismos intervinientes en el otorgamiento de los beneficios establecidos en el artículo 3º de la Ley.
+Asimismo deberá comunicar a los organismos competentes a fin de que procedan a iniciar los procedimientos administrativos de gestión y sancionatorios que correspondieren.

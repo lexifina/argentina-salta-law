@@ -1,0 +1,2 @@
+Artículo 6º.- (Reglamentación del artículo 3º, inciso g) de la Ley Nº 8.195).
+Los sujetos que requieran los avales previsto en el mencionado inciso, deberán presentar la solicitud fundada ante el Ministerio de Turismo y Deportes, quien lo analizará conjuntamente con el Ministerio de Economía y Servicios Públicos a efectos de gestionar su otorgamiento por la sociedad de garantía reciproca que corresponda, y dentro de los cupos obtenidos.

@@ -1,0 +1,2 @@
+Artículo 3º.- (Reglamentación del artículo 3º, inciso c) de la ley Nº 8.195).
+La solicitud deberá remitirse mediante nota al Ministerio de Turismo y Deportes, mencionando el proyecto de inversión de que se trata y los pagos u obligaciones pendientes de cumplimiento, las cuales serán elevadas al Ministerio de Produccion y Desarrollo Sustentable, como Autoridad de Aplicación de las Leyes Nº 6.064 y Nº 8.086.
