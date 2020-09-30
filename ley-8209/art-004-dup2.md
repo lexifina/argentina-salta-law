@@ -1,0 +1,3 @@
+ART. 4° - Modifícase el artículo 4° de la ley 25.080, el que quedará redactado de la siguiente forma:
+'Artículo 4°: Entiéndase por emprendimiento forestal, a los efectos de esta ley, a las plantaciones de especies forestales ecológicamente adaptadas al sitio, y que permitan satisfacer la demanda actual y potencial de materia prima por parte de distintas industrias, sea en plantaciones puras, mixtas o en sistemas agroforestales.
+Entiéndase por emprendimiento forestoindustrial aquel que utiliza madera como insumo principal para la obtención de productos y que incluya la implantación de bosques.'

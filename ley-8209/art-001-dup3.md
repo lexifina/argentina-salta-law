@@ -1,0 +1,3 @@
+Artículo 1° - Modificase el artículo 1° de la ley 25.080, el que quedará redactado de la siguiente forma:
+'Artículo 1º: Institúyese un régimen de promoción de las inversiones que se efectúen en nuevos emprendimientos forestales y en las ampliaciones de los bosques existentes, que regirá con los alcances y limitaciones establecidas en la presente ley y las normas complementarias que en su consecuencia dicte el Poder Ejecutivo nacional.
+Asimismo, se podrá beneficiar la instalación de nuevos emprendimientos forestoindustriales y las ampliaciones de los existentes, siempre y cuando se aumente la oferta maderera a través de la implantación de nuevos bosques. Dichos beneficios deberán guardar relación con las inversiones efectivamente realizadas en la implantación.'

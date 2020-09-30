@@ -1,0 +1,2 @@
+ART. 3° - Modifícase el artículo 3° de la ley 25.080, el que quedará redactado de la siguiente forma:
+'Artículo 3°: Las actividades comprendidas en el régimen instituido por la presente ley son: la implantación de bosques, su mantenimiento y su manejo sostenible incluyendo las actividades de investigación y desarrollo, así como las de industrialización de la madera, cuando el conjunto de todas ellas formen parte de un emprendimiento forestal o forestoindustrial integrado.
