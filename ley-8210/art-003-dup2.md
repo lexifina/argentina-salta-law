@@ -1,0 +1,2 @@
+Artículo 3°- El Programa será de aplicación obligatoria para todo el personal médico, de enfermería, de dirección y administración, logístico, de limpieza, gastronómico, ambulancieros y demás, que presten servicios en establecimientos de salud donde se efectúen prácticas destinadas a la atención de casos sospechosos, realización de muestras y tests, y/o atención y tratamiento de COVID-19, cualquiera sea el responsable y la forma jurídica del establecimiento.
+Principio de Bioseguridad.

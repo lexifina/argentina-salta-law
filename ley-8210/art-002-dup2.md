@@ -1,0 +1,2 @@
+Artículo 2°- Créase el Programa de Protección al Personal de Salud ante la pandemia de coronavirus COVID-19, sujeto a las disposiciones de la presente ley y toda normativa elaborada por la autoridad de aplicación que establezca el Poder Ejecutivo nacional, cuyo objetivo principal sea la prevención del contagio de Coronavirus COVID-19 entre el personal de salud que trabaje en establecimientos de salud de gestión pública o privada, y entre los trabajadores y voluntarios que presten servicios esenciales durante la emergencia sanitaria.
+Alcance.
