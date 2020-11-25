@@ -1,0 +1,1 @@
+Artículo 2°- Campaña Nacional. Se dispone la creación de una Campaña Nacional para la difusión y promoción de la donación voluntaria de plasma sanguíneo, proveniente de pacientes recuperados de COVID-19, en todo el territorio nacional, en el marco del “Plan Estratégico para regular el uso del plasma de pacientes recuperados de COVID-19 con fines terapéuticos”.
