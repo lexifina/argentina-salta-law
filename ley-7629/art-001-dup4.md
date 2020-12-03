@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Desígnase a la Sra. GABRIELA CAROLINA MASMUT, D.N.I. N° 22.328.906, en el cargo de COORDINADORA INTERMINISTERIAL de la Coordinación de Enlace y Relaciones Políticas de la Gobernación, a partir del 11 de diciembre de 2019, con remuneración de Secretario.
