@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Apruébase la Reglamentación de la Ley Nº 27.350 "Investigación Médica y Científica de Uso Medicinal de la Planta de Cannabis y sus derivados", que como ANEXO (IF-2020-77460970-APN-SSMEIE#MS) forma parte integrante del presente.

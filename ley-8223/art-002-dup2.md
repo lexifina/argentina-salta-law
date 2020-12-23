@@ -1,0 +1,2 @@
+Artículo 2°- Créase el Programa Nacional para el Estudio y la Investigación del Uso Medicinal de la Planta de Cannabis, sus derivados y tratamientos no convencionales, en la órbita del Ministerio de Salud.
+Objetivos.

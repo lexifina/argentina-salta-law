@@ -1,0 +1,1 @@
+ARTÍCULO 4°.- El MINISTERIO DE SALUD en su carácter de Autoridad de Aplicación de la Ley N° 27.350, se encuentra facultado para dictar las normas complementarias y aclaratorias y demás disposiciones que fueren necesarias para su mejor cumplimiento.
