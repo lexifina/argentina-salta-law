@@ -1,0 +1,1 @@
+ARTÍCULO 5º.- Con vigencia al 1º de enero de 2025 y hasta el 31 de diciembre del mismo año, fíjense los porcentajes de distribución de ingresos por Regalías Mineras que se detallan en el Anexo que forma parte del presente decreto, a favor de los Municipios que se indican en el mismo.
