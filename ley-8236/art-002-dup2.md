@@ -1,0 +1,1 @@
+Art. 2°- La Promesa de Lealtad a la Constitución Nacional la efectuarán los alumnos de tercer año de la escuela secundaria de todos los establecimientos educativos de gestión pública y privada, en un acto académico con la presencia de la Bandera Nacional.
