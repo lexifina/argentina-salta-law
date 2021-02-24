@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Establecer que los valores nominales, los rangos de haberes para su percepción con sus topes respectivos y las vigencias para la percepción de las asignaciones familiares serán los descriptos en los Anexos que forman parte de la presente.

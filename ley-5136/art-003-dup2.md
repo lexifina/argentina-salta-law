@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- Mantener la excepción del límite para la percepción de las asignaciones por Hijo Discapacitado o Incapacitado y por Adopción, conforme lo dispuesto en el artículo 4º del Decreto Nº 2.233/2005.
