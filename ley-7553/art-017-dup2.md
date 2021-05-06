@@ -1,0 +1,1 @@
+ARTICULO 17.- Reglamentación de los artículos 31 y 32 de la Ley Nº 24.449.- "Por ser librado al tránsito sin contar el vehículo de que se trata, con el sistema de iluminación correspondiente y las luces adicionales exigidas, será sancionado con multa de 5.000 U.F. hasta 20.000 U.F".

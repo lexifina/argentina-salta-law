@@ -1,0 +1,1 @@
+ARTICULO 5º.- Reglamentación del artículo 13 inciso d) de la Ley Nº 24.449.- "Por circular sin el distintivo que indica la condición de principiante durante los primeros SEIS (6) meses, será sancionado con multa de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir la cantidad de DOS (2) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 46.- Reglamentación del artículo 42 inciso b) de la Ley Nº 24.449.- "Por sobrepasar sin tener la visibilidad suficiente y/o iniciar la maniobra si se aproxima a una encrucijada, curva, puente, cima de la vía o lugar peligroso, será sancionado con multa de 200 U.F. hasta 1.000 U.F., y serán restados de la licencia de conducir la cantidad de DIEZ (10) puntos".

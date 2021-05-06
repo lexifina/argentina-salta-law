@@ -1,0 +1,1 @@
+Art. 22. - Deróganse los incisos e) y f) del artículo 7º de la Ley 24.449.

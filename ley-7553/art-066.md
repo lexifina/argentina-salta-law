@@ -1,0 +1,1 @@
+ARTICULO 66.- Reglamentación del artículo 47 de la Ley Nº 24.449.- "Por no cumplir las reglas previstas para el uso de las luces, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

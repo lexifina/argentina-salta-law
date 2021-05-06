@@ -1,0 +1,1 @@
+ARTICULO 65.- Reglamentación del artículo 46 inciso d) de la Ley Nº 24.449.- "Por circular en autopistas y semiautopistas remolcando vehículos accidentados, con desperfectos mecánicos, etc., más allá de la primera salida de la autopista, será sancionado con multa de 100 U.F. hasta 300 U.F.".

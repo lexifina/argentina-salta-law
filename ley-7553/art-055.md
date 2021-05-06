@@ -1,0 +1,1 @@
+ARTICULO 55.- Reglamentación del artículo 43 inciso e) de la Ley Nº 24.449.- "Por no respetar la prioridad de paso del que circula por rotonda, salvo señalización en contrario, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

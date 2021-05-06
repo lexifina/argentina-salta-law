@@ -1,0 +1,1 @@
+ARTICULO 40.- Reglamentación del artículo 41 inciso e) de la Ley Nº 24.449.- "Por no respetar la prioridad de los peatones en las sendas peatonales o zonas peligrosas, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

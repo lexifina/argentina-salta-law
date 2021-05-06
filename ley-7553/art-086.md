@@ -1,0 +1,1 @@
+ARTICULO 86.- Reglamentación del artículo 48 inciso s) de la Ley Nº 24.449.- "Por dejar animales sueltos y arrear hacienda, salvo en este último caso, por caminos de tierra y fuera de la calzada; será sancionado con multa de 100 U.F. hasta 300 U. F.".

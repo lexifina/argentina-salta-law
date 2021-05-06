@@ -1,0 +1,1 @@
+ARTICULO 14.- Reglamentación del artículo 27 de la Ley Nº 24.449.- "Por realizar construcciones permanentes o transitorias en la zona de camino, sin permiso de la autoridad competente, será sancionado con multa de 1.500 U.F. hasta 5.000 U.F.".

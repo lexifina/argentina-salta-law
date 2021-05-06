@@ -1,0 +1,1 @@
+ARTICULO 71.- Reglamentación del artículo 48 inciso e) de la Ley Nº 24.449.- "Los menores de DIECIOCHO (18) años por conducir ciclomotores en zonas céntricas, de gran concentración de vehículos o vías rápidas, serán sancionados con multa de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir la cantidad de DOS (2) puntos".

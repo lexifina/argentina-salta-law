@@ -1,0 +1,1 @@
+ARTICULO 13.- Reglamentación del artículo 26 de la Ley Nº 24.449.- "Por realizar publicidad en la vía pública sin observar la ubicación reglamentaria o sin tener el correspondiente permiso de la autoridad competente, será sancionado con multa de 1.500 U.F. hasta 5.000 U.F.".

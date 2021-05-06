@@ -1,0 +1,1 @@
+ARTICULO 59.- Reglamentación del artículo 44 inciso e) de la Ley Nº 24.449.- "Por haber iniciado el cruce, aún con luz verde, sin tener espacio suficiente del otro lado de la encrucijada, será sancionado con multa de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir la cantidad de DOS (2) puntos".

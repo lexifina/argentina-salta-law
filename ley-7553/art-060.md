@@ -1,0 +1,1 @@
+ARTICULO 60.- Reglamentación del artículo 44 inciso f) de la Ley Nº 24.449.- "Por girar a la izquierda en vías de doble mano reguladas por semáforo sin señal que lo permita, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

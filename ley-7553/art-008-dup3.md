@@ -1,0 +1,1 @@
+ARTICULO 8º.- La AGENCIA NACIONAL DE SEGURIDAD VIAL, a través de la Dirección Nacional de Licencias de Conducir y Antecedentes de Tránsito, asignará un código a cada infracción para su correcta identificación unívoca en todo el país.

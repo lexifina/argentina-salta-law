@@ -1,0 +1,1 @@
+ARTICULO 85.- Reglamentación del artículo 48 inciso r) de la Ley Nº 24.449.- "Por efectuar reparaciones en zonas urbanas, salvo arreglos de circunstancia, en cualquier tipo de vehículo, será sancionado con multa de 50 U.F. hasta 100 U.F.".

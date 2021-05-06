@@ -1,0 +1,1 @@
+ARTICULO 2º.- Reglamentación del artículo 11 de la Ley Nº 24.449.- "Por conducir sin tener cumplida la edad reglamentaria, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia nacional de conducir la cantidad de CUATRO (4) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 42.- Reglamentación del artículo 41 inciso g) apartado 1 de la Ley Nº 24.449.- "Por no respetar la prioridad cuando se desemboque desde una vía de tierra a una pavimentada, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

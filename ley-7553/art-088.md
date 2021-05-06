@@ -1,0 +1,1 @@
+ARTICULO 88.- Reglamentación del artículo 48 inciso u) de la Ley Nº 24.449.- "Por circular con bandas de rodamiento metálicas o con grapas, tetones, cadenas, uñas, u otro elemento que dañe la calzada salvo sobre el barro, nieve o hielo y también los de tracción animal en caminos de tierra, será sancionado con multa de 100 U.F. hasta 300 U.F.".

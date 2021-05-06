@@ -1,0 +1,1 @@
+ARTICULO 74.- Reglamentación del artículo 48 inciso h) de la Ley Nº 24.449.- "Por circular marcha atrás, excepto para estacionar, egresar de un garage o de una calle sin salida, será sancionado con multa de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir la cantidad de DOS (2) puntos".

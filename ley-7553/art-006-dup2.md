@@ -1,0 +1,9 @@
+Art. 6º — Comuníquese, publíquese, dése a la DIRECCION NACIONAL DEL REGISTRO OFICIAL y archívese. — FERNANDEZ DE KIRCHNER. — Aníbal D. Fernández. — Aníbal F. Randazzo. — Julio M. De Vido.
+ANEXO I
+REGIMEN
+DE
+CONTRAVENCIONES
+Y
+SANCIONES
+POR
+FALTAS COMETIDAS A LA LEY DE TRANSITO Nº 24.449.

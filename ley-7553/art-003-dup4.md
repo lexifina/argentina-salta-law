@@ -1,0 +1,1 @@
+ARTICULO 3º.- Reglamentación del artículo 12 de la Ley Nº 24.449.- "Por enseñar la conducción de vehículos sin cumplir los requisitos exigidos, serán sancionados con multa de 1.500 U.F. hasta 5.000 U.F.".

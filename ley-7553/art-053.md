@@ -1,0 +1,1 @@
+ARTICULO 53.- Reglamentación del artículo 43 de la Ley Nº 24.449.- "Por no respetar la señalización y las reglas pertinentes a la circulación en giros rotondas, prohibido retomar o giro en U, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

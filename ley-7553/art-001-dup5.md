@@ -1,0 +1,1 @@
+ARTICULO 1º.- Reglamentación del artículo 9º inciso e) de la Ley Nº 24.449.- "Por realizar publicidad laudatoria de conductas contrarias a los fines de la Ley de Tránsito, serán sancionados con multa 1.500 U.F. hasta 5.000 U.F.".

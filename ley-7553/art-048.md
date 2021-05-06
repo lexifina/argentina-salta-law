@@ -1,0 +1,2 @@
+ARTICULO 48.- Reglamentación del artículo 42 inciso d) de la Ley Nº 24.449.- "Por sobrepasar sin efectuar el sobrepaso rápidamente de forma tal de retomar su lugar a la derecha, sin interferir la marcha del vehículo sobrepasado y sin realizarla con el indicador de giro derecho en funcionamiento, será sancionado con multa de 150 U.F.
+hasta 500 U.F., y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

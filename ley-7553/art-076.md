@@ -1,0 +1,1 @@
+ARTICULO 76.- Reglamentación del artículo 48 inciso j) de la Ley Nº 24.449.- "En curvas, encrucijadas y otras zonas peligrosas, por cambiar de carril o fila, adelantarse, no respetar la velocidad precautoria y detenerse, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 82.- Reglamentación del artículo 48 inciso o) de la Ley Nº 24.449.- "Por circular con más de un acoplado, salvo lo dispuesto para maquinaria especial o agrícola, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

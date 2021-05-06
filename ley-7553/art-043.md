@@ -1,0 +1,1 @@
+ARTICULO 43.- Reglamentación del artículo 41 inciso g) apartado 2 de la Ley Nº 24.449.- "Por no ceder el paso al vehículo que sale del paso a nivel, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

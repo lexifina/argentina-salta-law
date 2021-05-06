@@ -1,0 +1,1 @@
+ARTICULO 87.- Reglamentación del artículo 48 inciso t) de la Ley Nº 24.449.- "Estorbar u obstaculizar de cualquier forma la calzada o la banquina y hacer construcciones, instalarse o realizar venta de productos en zona alguna del camino, será sancionado con multa de 100 U.F. hasta 300 U.F.".

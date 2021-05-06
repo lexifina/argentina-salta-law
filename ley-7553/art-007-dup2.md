@@ -1,0 +1,1 @@
+ARTICULO 7º.- Reglamentación del artículo 18 de la Ley Nº 24.449.- "Por circular con licencia caduca debido a no haber denunciado la modificación de datos dentro de los NOVENTA (90) días de producida dicha modificación, será sancionado con multa de 50 U.F. hasta 100 U.F.".

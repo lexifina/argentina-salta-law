@@ -1,0 +1,1 @@
+Art. 8. - La Agencia Nacional de Seguridad Vial será el organismo responsable de la coordinación y seguimiento del Plan Nacional de Seguridad Vial contemplado en el Convenio Federal sobre Acciones en Materia de Tránsito y Seguridad Vial, ratificado por el Poder Ejecutivo nacional a través del decreto 1232 del 11 de septiembre de 2007 y la Ley 26.353.

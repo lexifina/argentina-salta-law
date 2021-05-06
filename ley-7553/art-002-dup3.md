@@ -1,0 +1,1 @@
+Art. 2º — Sustitúyese el ANEXO 2 del Decreto Nº 779/95, Régimen de Contravenciones y Sanciones por faltas cometidas a la Ley de Tránsito Nº 24.449 que como ANEXO I forma parte integrante del presente Decreto.

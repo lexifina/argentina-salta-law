@@ -1,0 +1,1 @@
+ARTICULO 58.- Reglamentación del artículo 44 inciso b) de la Ley Nº 24.449.- "Por cruzar, el peatón, la calzada cuando el semáforo peatonal, de existir, no indique luz verde o blanca habilitante, será sancionado con multa de 50 U.F. hasta 100 U.F.".

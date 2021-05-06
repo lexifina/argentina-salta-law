@@ -1,0 +1,1 @@
+ARTICULO 8º.- Reglamentación del artículo 19 de la Ley Nº 24.449.- "Por conducir con licencia suspendida por ineptitud, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

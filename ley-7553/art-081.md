@@ -1,0 +1,1 @@
+ARTICULO 81.- Reglamentación del artículo 48 inciso ñ) de la Ley Nº 24.449.- "Por remolcar a otro vehículo sin contar con la habilitación técnica específica o los no destinados a tal fin, sin los dispositivos correspondientes, será sancionado con multa de 100 U.F. hasta 300 U.F.".

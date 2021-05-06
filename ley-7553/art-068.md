@@ -1,0 +1,1 @@
+ARTICULO 68.- Reglamentación del artículo 48 inciso b) de la Ley Nº 24.449.- "Al propietario o tenedor de un vehículo, por ceder o permitir la conducción a personas sin habilitación para ello, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".
