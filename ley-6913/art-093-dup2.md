@@ -1,0 +1,1 @@
+ARTICULO 93.- Reglamentación del artículo 49 inciso a) de la Ley Nº 24.449.- "Por no estacionar, en zona urbana, paralelamente al cordón, salvo que la autoridad local establezca por reglamentación otras formas, será sancionado con multa de 50 U.F. hasta 100 U.F.".

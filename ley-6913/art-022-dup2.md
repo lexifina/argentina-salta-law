@@ -1,0 +1,1 @@
+Artículo 22º - Vencido el término previsto en el artículo anterior, no habiendo presentado el infractor recurso, o habiendo desistido expresamente del mismo en la oportunidad de la notificación, la sentencia quedará firme y ejecutoria.

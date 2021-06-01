@@ -1,0 +1,1 @@
+ARTICULO 15.- Reglamentación de los artículos 28, 29, 30 y 33 de la Ley Nº 24.449.- "Por ser librado. al tránsito sin contar el vehículo automotor con las condiciones mínimas de seguridad activas, pasivas y de emisión de contaminantes exigidas, será sancionado con multa de 5.000 U.F. hasta 20.000 U.F.".

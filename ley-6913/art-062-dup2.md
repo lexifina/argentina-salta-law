@@ -1,0 +1,1 @@
+ARTICULO 62.- Reglamentación del artículo 46 inciso a) de la Ley Nº 24.449.- "Por circular por autopistas en el carril extremo izquierdo sin ser utilizado para el desplazamiento a la máxima velocidad admitida por la vía y para maniobras de adelantamiento, será sancionado con multa de 100 U.F. hasta 300 U.F.".

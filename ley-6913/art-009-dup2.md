@@ -1,0 +1,1 @@
+Artículo 9º - La registración de sanciones por infracciones a las normas de tránsito caduca a los cinco (5) años, a todos los efectos legales, excepto en los casos de reincidencia previsto en el artículo 82 de la Ley 24.449.

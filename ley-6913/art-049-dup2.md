@@ -1,0 +1,1 @@
+ARTICULO 49.- Reglamentación del artículo 42 inciso e) de la Ley Nº 24.449.- "El vehículo que es sobrepasado por no tomar las medidas necesarias para posibilitarlo, circular por la derecha de la calzada y mantenerse, y eventualmente reducir su velocidad, será sancionado con multa de 150 U.F. hasta 500 U.F., y serán restados de la licencia de conducir CINCO (5) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 39.- Reglamentación del artículo 41 inciso d) de la Ley Nº 24.449.- "Por no respetar la prioridad de paso o no detener la marcha cuando se ingresa o cruza a una semiautopista, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

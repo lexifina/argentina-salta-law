@@ -1,0 +1,1 @@
+ARTÍCULO 46 BIS: CICLOVÍAS Las autoridades competentes promoverán la planificación y construcción de una red de Ciclovías ó sendas especiales para la circulación de bicicletas y similares cuyos conductores estarán obligados a utilizarlas. (Incorporado por el Art. 4 de la Ley Nac. 25.965/2004. Adhesión por Ley Prov. 7445/2007).

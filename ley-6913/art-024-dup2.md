@@ -1,0 +1,3 @@
+Artículo 24º - Contra la sentencia de la Autoridad de Juzgamiento, el infractor podrá interponer el recurso de apelación ante del Juez Correccional y de Garantías en turno, fundado y dentro del plazo de cinco (5) días de notificada la misma.
+Es requisito de admisibilidad del recurso, el depósito en caución del importe de la condena, debiéndose acompañar al escrito fundado de apelación la constancia del depósito respectivo.
+El recurso fundado se interpondrá por ante la Autoridad de Juzgamiento, la que deberá elevarlo al Juez Correccional y de Garantías en turno, en el plazo de cinco (5) días, siempre que se hubiera dado cumplimiento al requisito de admisibilidad dispuesto en el párrafo anterior.

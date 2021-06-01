@@ -1,0 +1,1 @@
+ARTÍCULO 3º — GARANTÍA DE LIBERTAD DE TRÁNSITO. Queda prohibida la retención o demora del conductor, de su vehículo, de la documentación de ambos y/o licencia habilitante por cualquier motivo, salvo los casos expresamente contemplados por esta ley u ordenados por juez competente.

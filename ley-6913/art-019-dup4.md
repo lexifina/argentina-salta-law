@@ -1,0 +1,1 @@
+ARTICULO 19.- Reglamentación del artículo 35 de la Ley Nº 24.449.- "El responsable de un taller de revisión técnica obligatoria o de reparación que no cuente con habilitación por la autoridad competente o incumpla los requisitos exigidos, será sancionado con multa de 1.500 U.F. hasta 5.000 U.F".

@@ -1,0 +1,1 @@
+Artículo 31º - La tipificación de las faltas y sus correspondientes sanciones se fijan en el Anexo 2 del Decreto Nacional Nº 779/95 o la norma que en su futuro la reemplace, con más las especificaciones contenidas en los artículos siguientes.

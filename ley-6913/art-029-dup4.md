@@ -1,0 +1,1 @@
+ARTICULO 29.- Reglamentación del artículo 40 inciso f) de la Ley Nº 24.449.- "Por circular sin portar, excepto las motocicletas, un matafuegos y balizas portátiles de acuerdo a la reglamentación, será sancionado con multa de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir la cantidad de DOS (2) puntos".

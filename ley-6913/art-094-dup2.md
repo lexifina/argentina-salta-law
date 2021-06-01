@@ -1,0 +1,1 @@
+ARTICULO 94.- Reglamentación del artículo 49 inciso b) apartado 1 de la Ley Nº 24.449.- "Por estacionar, en zona urbana, donde se pueda afectar la seguridad, visibilidad o fluidez del tránsito o se oculte la señalización, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

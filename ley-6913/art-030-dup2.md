@@ -1,0 +1,1 @@
+Artículo 30º - Las infracciones a las disposiciones de la Ley, serán sancionadas con las Unidades Fijas denominadas UF, cada una de las cuales equivale al menor precio de venta al público de un litro de nafta súper que fija el Automóvil Club Argentino para sus estaciones de la Provincia de Salta.

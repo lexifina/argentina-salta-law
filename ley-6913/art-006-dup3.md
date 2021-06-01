@@ -1,0 +1,2 @@
+Art. 6. - La Agencia Nacional de Seguridad Vial estará a cargo de un Director
+Ejecutivo con rango y jerarquía de Subsecretario, designado por el Poder Ejecutivo nacional.

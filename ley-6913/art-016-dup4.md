@@ -1,0 +1,1 @@
+ARTICULO 16.- Reglamentación del artículo 29 inciso k) de la Ley Nº 24.449.- "Por circular en bicicleta sin contar con elementos retrorreflectivos en pedales y ruedas, para facilitar su detección durante la noche, será sancionado con multa de 50 U.F. hasta 100 U.F.".

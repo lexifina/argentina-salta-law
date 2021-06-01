@@ -1,0 +1,1 @@
+Artículo 34º - Comprobada la infracción prevista en el artículo anterior, corresponderá al conductor arresto de cinco (5) días conmutables la primera vez con multa de 300 UF a 1.000 UF, más la accesoria de inhabilitación.

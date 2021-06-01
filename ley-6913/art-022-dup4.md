@@ -1,0 +1,1 @@
+ARTICULO 22.- Reglamentación del artículo 38 inciso a) apartado 1 de la Ley Nº 24.449 "Por no transitar los peatones, en zona urbana por la acera u otros espacios habilitados a ese fin y en las intersecciones, por la senda peatonal, serán sancionados con multa de 50 U.F. hasta 100 U.F.".

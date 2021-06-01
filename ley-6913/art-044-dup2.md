@@ -1,0 +1,1 @@
+ARTICULO 44.- Reglamentación del artículo 41, último párrafo, de la Ley Nº 24.449.- "Por no retroceder el conductor del vehículo que desciende en las cuestas estrechas, salvo que éste lleve acoplado y el que asciende no, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

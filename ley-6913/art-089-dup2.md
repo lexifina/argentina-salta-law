@@ -1,0 +1,1 @@
+ARTICULO 89.- Reglamentación del artículo 48 inciso v) de la Ley Nº 24.449.- "Usar la bocina o señales acústicas; salvo en caso de peligro o en zona rural, y tener el vehículo sirena o bocina no autorizadas, será sancionado con multa de 50 U.F. hasta 100 U.F.".

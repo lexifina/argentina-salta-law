@@ -1,0 +1,2 @@
+Artículo 2º - La Autoridad de Aplicación deberá ejercer las facultades atribuidas por Ley con sujeción a los principios de centralización normativa y descentralización operativa, garantizándose el pleno ejercicio de las facultades conferidas por la Constitución a los Municipios.
+La Autoridad de Aplicación podrá celebrar convenios de colaboración y cooperación con autoridades del Estado Nacional y de los Municipios de la Provincia.

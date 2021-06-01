@@ -1,0 +1,2 @@
+Artículo 21º - Si la infracción fuere de multa, en la notificación cursada al infractor se le hará saber que cuenta con el plazo de cinco (5) días a partir de su recepción a efectos de proceder al pago de la misma en caso de acatamiento, o de recurrir la sentencia dictada. En dicha notificación se consignará el procedimiento recursivo a seguir para el caso de que se opte por esta vía.
+Se indicará asimismo el procedimiento para el pago de la multa, más los gastos administrativos de notificación que se fijarán en cada caso.

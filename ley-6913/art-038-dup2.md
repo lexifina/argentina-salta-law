@@ -1,0 +1,2 @@
+Artículo 38º - Transporte de Cargas. Los vehículos que transporten cargas a granel, deberán contar con una cobertura de protección adecuada que evite derramamientos o pérdidas de cualquier elemento, material o sustancia que se transporte sin envasar, debiendo asimismo tener indicada la capacidad de carga en metraje cúbico, requisitos sin los cuales no podrán circular.
+El incumplimiento de esta previsión será sancionada conforme lo normado en los artículos 77 y 84 de la Ley Nº 24.449.

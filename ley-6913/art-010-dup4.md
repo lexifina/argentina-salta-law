@@ -1,0 +1,1 @@
+ARTICULO 10.- Reglamentación del artículo 22 de la Ley Nº 24.449.- "Por no señalizar y demarcar la vía pública conforme al Sistema Uniforme de Señalamiento Vial, serán sancionados con multa de 1.500 U.F. hasta 5.000 U.F.".

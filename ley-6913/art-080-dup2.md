@@ -1,0 +1,1 @@
+ARTICULO 80.- Reglamentación del artículo 48 inciso n) de la Ley Nº 24.449.- "Por transitar ómnibus y camiones, a una distancia menor a CIEN (100) metros entre sí, salvo cuando tengan mas de DOS (2) carriles por mano o para realizar una maniobra de adelantamiento, serán sancionados con multa de 100 U.F. hasta 300 U.F.".

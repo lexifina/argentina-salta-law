@@ -1,0 +1,1 @@
+ARTICULO 50.- Reglamentación del artículo 42 inciso f) de la Ley Nº 24.449.- "Por adelantar, al vehículo precedente, cuando el mismo esté indicando con la luz de dirección izquierda la inconveniencia del adelantamiento, será sancionado con multa de 100 U.F. hasta 300 U.F., y serán restados de la licencia de conducir CUATRO (4) puntos".

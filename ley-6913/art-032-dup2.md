@@ -1,0 +1,1 @@
+Artículo 32º - La circulación de vehículos automotores sin contar con luz de giro, luz para patente trasera y/o luces de emergencia, hará pasible a su conductor o propietario a una multa de 30 a 100 U.F.

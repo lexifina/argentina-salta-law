@@ -1,0 +1,2 @@
+Artículo 12º - Autoridad de Comprobación y Juzgamiento. La Policía de la Provincia, a través de la Dirección de Seguridad Vial, es la Autoridad de Comprobación y Juzgamiento de las faltas y contravenciones previstas en la Ley Nº 24.449 y su reglamentación, en todo el territorio de la Provincia, tanto en rutas nacionales como provinciales.
+Tendrá la misma facultad dentro de los ejidos urbanos municipales de aquellas comunas que mediante convenios le deleguen tal función.

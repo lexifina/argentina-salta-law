@@ -1,0 +1,1 @@
+ARTICULO 56.- Reglamentación del artículo 44 inciso a) apartados 1, 3, 4 y 5 de la Ley Nº 24.449.- "Por no respetar las indicaciones de las luces de los semáforos, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

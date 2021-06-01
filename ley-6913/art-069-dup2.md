@@ -1,0 +1,1 @@
+ARTICULO 69.- Reglamentación del artículo 48 inciso c) de la Ley Nº 24.449.- "Por circular a contramano, sobre los separadores de tránsito o fuera de la calzada, salvo sobre la banquina en caso de emergencia, será sancionado con multa de 200 U.F. hasta 1.000 U.F. y serán restados de la licencia de conducir la cantidad de DIEZ (10) puntos".

@@ -1,0 +1,1 @@
+Artículo 20º - Dictada la sentencia, la Autoridad de Juzgamiento dentro de los diez (10) días, procederá a la notificación de la misma al infractor vía postal con aviso de recepción o a través de la dependencia Policial que corresponda a su domicilio.

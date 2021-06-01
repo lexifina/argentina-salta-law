@@ -1,0 +1,1 @@
+ARTICULO 91.- Reglamentación del artículo 48 inciso x) de la Ley Nº 24.449.- "Por conducir utilizando auriculares y/o sistemas de comunicación manual continua y/o pantallas o monitores de video VHF, DVD o similares en el habitáculo del conductor, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

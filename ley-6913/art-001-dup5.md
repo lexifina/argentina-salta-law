@@ -1,0 +1,2 @@
+Artículo 1º - Es Autoridad de Aplicación de la Ley Nacional Nº 24.449, en el territorio de la Provincia de Salta, la Secretaría de la Gobernación de Seguridad.
+La Autoridad de Aplicación deberá velar por el cumplimiento de la Ley en su jurisdicción, coordinando y procurando su implementación con los distintos municipios de la Provincia, a fin de lograr la unicidad normativa en todo lo concerniente a las infracciones, control, juzgamiento, sanciones, expedición de licencias de conducir y todo otro extremo que haga a la uniformidad normativa en todo el territorio provincial.

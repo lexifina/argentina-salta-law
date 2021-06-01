@@ -1,0 +1,1 @@
+Artículo 19º - En casos de infracciones de carácter grave, recepcionada el acta de comprobación, la Autoridad de Juzgamiento, dentro de las cuarenta y ocho (48) horas y previo a resolver, requeriría los antecedentes de tránsito del infractor al Registro Provincial de Antecedentes de Tránsito.

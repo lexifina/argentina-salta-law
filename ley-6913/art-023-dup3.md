@@ -1,0 +1,2 @@
+Artículo 23º - El pago voluntario de la multa efectuada, cuando se trata de infracciones de carácter leve, implica su reconocimiento y producirá la remisión de la misma al Registro Provincial de Antecedentes de Tránsito para su toma de razón, sin que implique efectos para la reincidencia.
+En los demás casos y una vez firme, una copia de la sentencia será remitida al Registro Provincial de Antecedentes de Tránsito para su toma de razón.

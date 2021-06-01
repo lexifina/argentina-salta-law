@@ -1,0 +1,1 @@
+Artículo 27º - Vencido el plazo dispuesto en el artículo precedente y no habiéndose recepcionado el pago correspondiente se seguirá el procedimiento de juzgamiento previsto, dándose por caducos los beneficios del pago voluntario.

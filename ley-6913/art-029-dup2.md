@@ -1,0 +1,2 @@
+Artículo 29º - La Dirección de Seguridad Vial de la Policía de la Provincia percibirá el treinta por ciento (30%) de la recaudación que por venta de obleas para constancia de la Revisión Técnica Vehicular de vehículos particulares, perciba el Ente Regulador de los Servicios Públicos o el
+organismo que lo reemplace. La Secretaría de la Gobernación de Seguridad coordinará la remisión periódica de tal porcentaje desde el Ente Regulador de los Servicios Públicos a la citada Dirección.

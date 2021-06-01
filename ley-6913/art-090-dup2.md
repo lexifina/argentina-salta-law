@@ -1,0 +1,1 @@
+ARTICULO 90.- Reglamentación del artículo 48 inciso w) de la Ley Nº 24.449.- "Por circular con vehículos que emitan gases, humos, ruidos, radiaciones u otras emanaciones contaminantes del ambiente, que excedan los límites reglamentarios, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 6º.- El saldo de puntos establecido en el artículo 1º del presente sistema podrá ser modificado por la AGENCIA NACIONAL DE SEGURIDAD VIAL, conforme a los distintos plazos de otorgamiento de la Licencia Nacional de Conducir, tal como surge de lo previsto en el artículo 25 Anexo I del Decreto Nº 1716/08, modificatorio del artículo 13 del Anexo I del Decreto Nº 779/95.

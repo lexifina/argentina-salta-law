@@ -1,0 +1,1 @@
+ARTICULO 51.- Reglamentación del artículo 42 inciso g) de la Ley Nº 24.449.- "Por no facilitar, los camiones y maquinarias especiales, el adelantamiento en caminos angostos, corriéndose a la banquina periódicamente, serán sancionados de 50 U.F. hasta 100 U.F. y serán restados de la licencia de conducir DOS (2) puntos".

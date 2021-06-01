@@ -1,0 +1,1 @@
+Artículo 36º - El estado de intoxicación al que se refiere el artículo 33 del presente, se acreditará en la forma prevista por el artículo 48 de la Ley Nº 24.449 o por examen clínico de profesional médico que determine la disminución de aptitud para conducir.

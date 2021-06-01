@@ -1,0 +1,1 @@
+Artículo 35º - En caso de reincidencia, el arresto no podrá exceder de sesenta (60) días, en tanto la multa e inhabilitación en tales supuestos se graduará conforme las reglas establecidas en el artículo 82 de la Ley 24.449.

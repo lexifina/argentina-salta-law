@@ -1,0 +1,1 @@
+ARTICULO 63.- Reglamentación del artículo 46 inciso b) de la Ley Nº 24.449.- "Por circular en autopistas y semiautopistas peatones, vehículos propulsados por el conductor, vehículos de tracción a sangre, ciclomotores y maquinaria especial, será sancionado con multa de 100 U.F. hasta 300 U.F.".

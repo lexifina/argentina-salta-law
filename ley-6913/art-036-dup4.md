@@ -1,0 +1,1 @@
+ARTICULO 36.- Reglamentación del artículo 41 inciso a) de la Ley Nº 24.449.- "Por no res petar la prioridad de paso a quien cruza desde su derecha, salvo señalización en contrario, será sancionado con multa de 150 U.F. hasta 500 U.F. y serán restados de la licencia de conducir la cantidad de CINCO (5) puntos".

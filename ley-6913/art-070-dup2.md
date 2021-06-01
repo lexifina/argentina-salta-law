@@ -1,0 +1,1 @@
+ARTICULO 70.- Reglamentación del artículo 48 inciso d) de la Ley Nº 24.449.- "Por disminuir arbitraria y bruscamente la velocidad, realizar movimientos zigzagueantes o maniobras caprichosas e intempestivas, será sancionado con multa de 100 U.F. hasta 300 U.F. y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

@@ -1,0 +1,1 @@
+ARTICULO 6º.- Reglamentación del artículo 14 inciso a) apartado 4 de la Ley Nº 24.449.- "Por conducir un vehículo sin anteojos o lentes de contacto o audífonos o similar cuando la licencia indique su obligación de uso, será sancionado con multa de 100 U.F. hasta 300 U.F., y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

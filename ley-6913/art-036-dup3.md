@@ -1,0 +1,5 @@
+Art. 36. - Modifícase el artículo 89 de la Ley 24.449, el que quedará redactado de la siguiente manera:
+a) Art. 89. - PRESCRIPCION. La prescripción se opera:
+a) A los DOS (2) años para la acción por falta leve;
+b) A los CINCO (5) años para la acción por falta grave y para sanciones;
+En todos los casos, se interrumpe por la comisión de una falta grave o por la secuela del juicio contravencional, ejecutivo o judicial.

@@ -1,0 +1,1 @@
+Artículo 33º - Las personas que sean sorprendidas conduciendo en estado de intoxicación alcohólica, por estupefacientes o cualquier otra sustancia que disminuya sus condiciones psicofísicas normales, serán sancionadas con arresto conmutables por multa, sin perjuicio de la retención preventiva que establece el arto 72 inc. a) de la Ley Nº 24.449.

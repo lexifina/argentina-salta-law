@@ -1,0 +1,1 @@
+ARTICULO 4º.- Reglamentación del artículo 13 inciso c) de la Ley Nº 24.449.- "Por circular con licencia de conducir vencida, será sancionado con multa de 100 U.F. hasta 300 U.F., y serán restados de la licencia de conducir la cantidad de CUATRO (4) puntos".

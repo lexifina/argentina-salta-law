@@ -1,0 +1,1 @@
+ARTICULO 3º.- En los casos de los artículos 17, 18, 31, 32, 83 y 84 del ANEXO I del presente decreto, la deducción de puntos en la Licencia Nacional de Conducir, se aplicará cuando el conductor profesional del vehículo fuere asimismo el titular registral del dominio.

@@ -1,0 +1,1 @@
+ARTICULO 54.- Reglamentación del artículo 43 inciso a) de la Ley Nº 24.449.- "Por no advertir la maniobra al realizar un giro con suficiente antelación, mediante la señal luminosa correspondiente, que se mantendrá hasta la salida de la encrucijada, será sancionado con multa de 100 U.F. hasta 300 U.F." .
