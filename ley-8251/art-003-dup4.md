@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- La información de las páginas Web deberá adecuarse a las normas que se establezcan en virtud de lo dispuesto en los artículos 4° y 5° de la presente Reglamentación, con el objeto de que puedan ser comprendidas y consultadas por personas con discapacidad y por usuarios que posean diversas configuraciones en su equipamiento o en sus programas.

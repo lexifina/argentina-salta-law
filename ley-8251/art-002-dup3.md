@@ -1,0 +1,1 @@
+ARTÍCULO 2°.- Apruébase la reglamentación de la Ley Nº 26.653 de Accesibilidad de la Información en las Páginas Web, que como ANEXO I (IF 2019-82570504-APN-SGM#JGM) forma parte integrante del presente.

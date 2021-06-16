@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- Las normas y requisitos de accesibilidad deberán ser aprobados y/o actualizados periódicamente por Disposición de la OFICINA NACIONAL DE TECNOLOGÍAS DE INFORMACIÓN de la SECRETARÍA DE GOBIERNO DIGITAL E INNOVACIÓN TECNOLÓGICA de la Secretaría de Gobierno de Modernización de la JEFATURA DE GABINETE DE MINISTROS, o el organismo que en un futuro la reemplace.
