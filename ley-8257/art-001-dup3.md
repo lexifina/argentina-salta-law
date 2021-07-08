@@ -1,0 +1,1 @@
+ARTÍCULO 1° - Objeto. El objeto de la presente ley es regular un sistema de prevención integral de eventos por muerte súbita en espacios públicos y privados de acceso público a fin de reducir la morbimortalidad súbita de origen cardiovascular.

@@ -1,0 +1,1 @@
+ARTÍCULO 3° - Autoridad de aplicación. La autoridad de aplicación de la presente ley debe coordinar su aplicación con las jurisdicciones en el marco del Consejo Federal de Salud - COFESA-y del Consejo Federal de Educación -CFE-.
