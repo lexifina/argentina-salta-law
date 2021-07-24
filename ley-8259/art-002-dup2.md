@@ -1,0 +1,1 @@
+Artículo 2º- El Programa creado en el artículo 1º tendrá como objetivo prevenir, sensibilizar y generar conciencia en la población sobre la problemática del grooming o ciberacoso a través del uso responsable de las Tecnologías de la Información y la Comunicación (TICs) y de la capacitación de la comunidad educativa en su conjunto.
