@@ -1,0 +1,2 @@
+Art. 2º- Objeto: La presente ley tiene por objeto la reducción y eliminación de Pérdidas y Desperdicio de Alimentos (PDA), a través del empoderamiento y movilización de los productores,
+procesadores, distribuidores, consumidores y asociaciones; otorgando especial relevancia a la atención de las necesidades básicas alimentarias de la población en condiciones de vulnerabilidad y con riesgo de subsistencia.

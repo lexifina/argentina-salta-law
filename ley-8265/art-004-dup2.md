@@ -1,0 +1,10 @@
+Art. 4°- Acciones. Las políticas públicas para el fomento, desarrollo y promoción de la reducción de PDA y de la donación de alimentos deben comprender principalmente, las siguientes acciones:
+a) Generar campañas de información y comunicación para la sensibilización de cada uno de los actores de la cadena alimentaria y de los consumidores, orientadas a optimizar prácticas para evitar pérdidas y desperdicios.
+b) Desarrollar y capacitar en procesos y estrategias de conservación de los productos de la cosecha, en particular de la agricultura a pequeña escala, destinados al autoconsumo o para la venta; teniendo en consideración formas de uso y consumo no tradicionales de los productos.
+c) Promover mejoras en infraestructura, particularmente el transporte, la energía y las instalaciones del mercado, que posibiliten la reducción de las PDA.
+d) Promover el desarrollo y facilitar el acceso a equipamiento y nuevas tecnologías/innovación, que contribuyan a reducir las pérdidas de alimentos en todas las etapas de la cadena.
+e) Incluir la temática de seguridad alimentaria y nutricional y la forma de evitar las PDA en todos los niveles educativos.
+f) Gestionar con productores y comercializadores de alimentos, bancos de alimentos, asociaciones u Organizaciones No Gubernamentales, medios de comunicación, establecimientos educativos, u otras entidades nacionales e internacionales, la suscripción de convenios encaminados a reducir la pérdida y el desperdicio de alimentos, así como fomentar y canalizar la donación de productos alimenticios en los términos de la ley 25.989.
+g) Promover en los medios de comunicación masiva campañas permanentes de sensibilización sobre los perjuicios de la pérdida y el desperdicio de alimentos, la revalorización de los mismos y su aprovechamiento en beneficio de quienes carecen de recursos económicos para adquirirlos, y el consumo responsable.
+h) Capacitar a los operadores de la cadena alimentaria sobre los beneficios de la donación de alimentos.
+i) Toda otra acción destinada a incrementar la cantidad y calidad de alimentos donados en beneficio de personas en situación de vulnerabilidad.
