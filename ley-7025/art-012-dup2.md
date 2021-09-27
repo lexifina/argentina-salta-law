@@ -1,0 +1,1 @@
+Art. 12.- Aprobado el proyecto o emprendimiento por la Autoridad de Aplicación Nacional, el Poder Ejecutivo Provincial emitirá el acto administrativo respectivo concediendo a los beneficios tributarios previstos en la ley provincial.

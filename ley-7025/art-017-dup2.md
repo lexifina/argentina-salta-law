@@ -1,0 +1,5 @@
+Art. 17.- La superficie total solicitada, a los fines de la afectación del inmueble de dominio provincial, debe ser proporcional a la explotación proyectada.
+Si el emprendimiento presentado, contemplara su ejecución en etapas dividiendo la superficie a forestar en varios periodos anuales, la afectación podrá resolverse por la superficie total
+que proyecte el emprendimiento, con la expresa salvedad de que la entrega de la tierra al titular se efectivizará gradualmente y a medida que sea comprobada mediante certificación de la autoridad competente, la plantación lograda en la superficie acordada, se entregará la superficie que corresponda a la etapa o período siguiente.
+Para el caso que no se haya cumplido con la forestación en la superficie que se entregó a tal fin, se dejará sin efecto la afectación total del o los inmuebles objeto del emprendimiento, remitiendo asimismo los antecedentes a la Autoridad de Aplicación Nacional, a los efectos de las sanciones que correspondieran.
+Modalidades

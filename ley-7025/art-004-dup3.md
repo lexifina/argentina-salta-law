@@ -1,0 +1,3 @@
+Art. 4.- Los actos, instrumentos, contratos y titulo contemplados en el Art. 2º de la Ley Provincial, a que diera lugar la organización del emprendimiento o que se generen a causa de éste, deberán ser presentados por ante la Dirección General de Rentas, adjuntando constancia expedida por la Autoridad de Aplicación conforme lo previsto en el Art. 7º de la presente.
+Hasta tanto el Poder Ejecutivo Provincial se expida en los términos del Art. 12, el organismo recaudador procederá a la suspensión del cobro del impuesto respectivo, previa verificación de su presentación ante la autoridad provincial pertinente.
+Impuesto Inmobiliario

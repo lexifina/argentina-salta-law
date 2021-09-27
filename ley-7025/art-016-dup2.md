@@ -1,0 +1,1 @@
+Art. 16.- Si existiere más de un emprendimiento presentado sobre el mismo inmueble de dominio provincial, o sobre una misma parcela en el caso de no solicitar la totalidad del mismo, a los fines de su análisis y aprobación, será evaluado con prioridad, el que fuera presentado en primer término.

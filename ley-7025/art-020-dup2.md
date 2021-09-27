@@ -1,0 +1,1 @@
+Art. 20.- La materialización de los límites correspondiente al/los inmuebles objeto del emprendimiento forestal y/o fortestoindustrial aprobado estará a cargo del titular del mismo, conforme al Plano expedido por la Dirección General de Inmuebles de la Provincia.
