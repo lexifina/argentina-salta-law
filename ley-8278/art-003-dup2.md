@@ -1,0 +1,2 @@
+Artículo 3º.- Las entidades beneficiarias gozarán de un tratamiento tarifario especial gratuito para los servicios públicos de provisión de energía eléctrica, gas natural provisto por red, agua potable y colección de desagües cloacales, telefonía fija, telefonía móvil en todas sus modalidades y servicios de las tecnologías de la información y las comunicaciones, que se encuentren bajo jurisdicción nacional.
+Sujetos e inmuebles alcanzados.

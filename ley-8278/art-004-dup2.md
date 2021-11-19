@@ -1,0 +1,2 @@
+Artículo 4º.- El régimen tarifario especial es aplicable a las asociaciones y federaciones de bomberos voluntarios, al Consejo de Federaciones de Bomberos Voluntarios de la República Argentina y a la Fundación Bomberos de Argentina, como entidades conformantes del Sistema Nacional de Bomberos Voluntarios establecido por ley 25.054 y sus modificatorias, y a los inmuebles que funcionen de forma permanente como oficinas administrativas, cuarteles y/o destacamentos operativos.
+Calidad de los servicios públicos.
