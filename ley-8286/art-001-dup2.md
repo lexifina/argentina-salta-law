@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión de fecha 04 de noviembre del corriente año, ingresado como Expediente Nº 90-30234/2021, en fecha 15 de noviembre de 2021, vetándose en el artículo 1º la frase “de 1 ha. y 4.557 m2”.
