@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas en sesión de fecha 19 de abril del corriente año, ingresado como Expediente Nº 91-33.132/14 en fecha 25 de abril de 2.016, vetándose en el artículo 7º la frase "y la misma se imputará al Ministerio de Derechos Humanos y Justicia o al organismo que en el futuro lo reemplace".
