@@ -1,0 +1,3 @@
+Artículo 1º.- Con encuadre en lo previsto por los artículos 144, inc. 4), 131 y concordantes de la Constitución Provincial, obsérvase parcialmente el Proyecto de Ley de Adhesión de la Provincia de Salta al artículo 34 y concordantes de la Ley Nacional Nº 23.737 y sus modificatorias, en los términos condiciones y alcances previstos por la Ley Nacional Nº 26.052, sancionado por las Cámaras Legislativas, en sesión de fecha 22 de agosto de 2013, ingresado el 29 del mismo mes bajo Expediente Nº 0360090-21496/2013, según se expresa a continuación:
+a) Vétase parcialmente el artículo 4º, excluyéndose de su texto la siguiente frase:
+―…en razón de circunstancias no previstas al momento de la sanción de la presente Ley.‖
