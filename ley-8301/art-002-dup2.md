@@ -1,0 +1,1 @@
+ARTÍCULO 2º - Este Programa será de aplicación en toda la zona sísmica del territorio argentino, que abarca a las Provincias de: Salta, Jujuy, Tucumán, Santiago del Estero, Catamarca, La Rioja, Córdoba, San Luis, San Juan, Mendoza, La Pampa, Neuquén, Río Negro, Chubut, Santa Cruz y Tierra del Fuego, Antártida e Islas del Atlántico Sur.
