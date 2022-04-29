@@ -1,0 +1,2 @@
+Art. 16.- Los saldos de los bonos de crédito fiscal no aplicados al 31 de diciembre de 2019, por los beneficiarios del Régimen de Promoción de la Industria del Software de la ley 25.922 y su modificatoria, se mantendrán vigentes hasta su agotamiento.
+Plazo para acreditar requisitos para beneficiarios de la ley 25.922.

@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- Fíjase un derecho de exportación del CERO POR CIENTO (0 %) a la exportación de las prestaciones de servicios comprendidas en el inciso c) del apartado 2 del artículo 10 de la Ley N° 22.415 (Código Aduanero) y sus modificaciones, efectuadas por los sujetos inscriptos en el "Registro Nacional de Beneficiarios del Régimen de Promoción de la Economía del Conocimiento".

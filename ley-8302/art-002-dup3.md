@@ -1,0 +1,2 @@
+ARTÍCULO 2°.- Facúltase a la Autoridad de Aplicación de la Ley Nº 27.506 y su modificatoria y de la Ley de Promoción de la Industria del Software N° 25.922 y su modificatoria, en las cuestiones
+remanentes y transitorias, por sí o por quien esta designe, a dictar las normas aclaratorias y complementarias que sean necesarias para la aplicación de las citadas normas y de lo dispuesto en la Reglamentación que se aprueba por la presente medida.

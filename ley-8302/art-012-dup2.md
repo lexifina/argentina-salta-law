@@ -1,0 +1,4 @@
+Art. 12.- Los beneficiarios del presente régimen podrán considerar como gasto deducible a los fines de la determinación del impuesto a las ganancias, al monto equivalente a los gravámenes análogos efectivamente pagados o retenidos en el exterior, con motivo de los ingresos obtenidos en contraprestación de las actividades comprendidas en el artículo 2° de la presente ley, en la medida en que dichos ingresos fueran considerados ganancias de fuente argentina, en los términos de la Ley del Impuesto a las Ganancias, t.o. 2019 y sus modificatorias.
+CAPÍTULO IV
+VERIFICACIÓN Y CONTROL. INFRACCIONES Y SANCIONES
+Régimen informativo. Verificación y control.

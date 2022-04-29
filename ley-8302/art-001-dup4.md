@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Apruébase la Reglamentación de la Ley N° 27.506 y su modificatoria - "Régimen de Promoción de la Economía del Conocimiento", que como ANEXO (IF-2020-88623099-APN-SIECYGCE#MDP) forma parte integrante del presente decreto.

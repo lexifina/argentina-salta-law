@@ -1,0 +1,10 @@
+Art. 9° - El monto del beneficio previsto en el artículo precedente ascenderá al ochenta por ciento (80%) de las contribuciones patronales que se hayan efectivamente pagado, con destino a los sistemas y subsistemas de seguridad social cuando se trate de nuevas incorporaciones laborales debidamente registradas, de:
+a) Mujeres;
+b) Personas travestís, transexuales y transgénero, hayan o no rectificado sus datos registrales, de
+conformidad con lo establecido en la ley 26.743;
+c) Profesionales con estudios de posgrado en materia de ingeniería, ciencias exactas o naturales;
+d) Personas con discapacidad;
+e) Personas residentes de "zonas desfavorables y/o provincias de menor desarrollo relativo";
+f) Personas que, previo a su contratación, hubieran sido beneficiarias de planes sociales, entre otros grupos de interés a ser incorporados a criterio de la autoridad de aplicación, siempre que se supere la cantidad del personal en relación de dependencia oportunamente declarado.
+La autoridad de aplicación establecerá además las definiciones y aclaraciones que estime pertinentes, a los fines de tornar operativa la franquicia.
+Impuesto a las Ganancias.

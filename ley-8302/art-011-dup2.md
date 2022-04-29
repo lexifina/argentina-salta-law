@@ -1,0 +1,5 @@
+Art. 11.- Los beneficiarios del presente régimen que efectúen operaciones de exportación respecto de la/s actividad/es promovida/s, no serán sujetos pasibles de retenciones y percepciones del impuesto al valor agregado.
+En las formas y condiciones que establezca la reglamentación, la Administración Federal de Ingresos Públicos expedirá la respectiva constancia del beneficio dispuesto en el párrafo precedente.
+Adicionalmente, el organismo fiscal podrá expedir la referida constancia a otros beneficiarios que por las particulares características de sus actividades, contarán con la aprobación por parte del Ministerio de Desarrollo Productivo y del Ministerio de Economía.
+CAPÍTULO III
+PAGO A CUENTA DEL IMPUESTO A LAS GANANCIAS

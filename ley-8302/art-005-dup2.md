@@ -1,0 +1,2 @@
+Art. 5° - Queda excluida del régimen establecido en la presente ley la actividad de autodesarrollo a efectos de ser computado dentro del porcentaje de facturación exigido para constituir la actividad promovida descripta en el inciso a) del artículo 2° de la presente ley. A los fines de esta ley, se entiende por autodesarrollo el realizado por una persona jurídica para su propio uso o para empresas vinculadas societaria y/o económicamente, y en todos los casos revistiendo el carácter de usuario final.
+Micro Empresas.

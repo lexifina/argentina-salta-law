@@ -1,0 +1,1 @@
+ARTÍCULO 22.- La Autoridad de Aplicación establecerá los criterios y mecanismos a seguir para seleccionar los proyectos y/o emprendimientos, susceptibles de acceder a los instrumentos de financiamiento a otorgarse en el marco del FONPEC. Las convocatorias de selección y los demás mecanismos que la Autoridad de Aplicación establezca a esos fines deberán revestir carácter público.

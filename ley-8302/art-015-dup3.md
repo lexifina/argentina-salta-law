@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Los beneficiarios y las beneficiarias que hubieran sido sancionados o sancionadas con la baja del régimen o revocación de la inscripción para acceder a los beneficios no podrán solicitar una nueva inscripción al Régimen por el plazo previsto en el acto sancionatorio.

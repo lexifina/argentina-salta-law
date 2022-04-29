@@ -1,0 +1,12 @@
+Art. 15.- El incumplimiento de las disposiciones del presente Régimen de Promoción de la Economía del Conocimiento, del régimen informativo y/o la falsedad de la información declarada por el beneficiario y/o documentación presentada, dará lugar a la aplicación, en forma individual o conjunta, de las siguientes sanciones, sin perjuicio de las que pudieran corresponder por aplicación de la legislación penal y/o previsional y/o tributaria:
+a) Suspensión del goce de los beneficios del presente régimen por el período que dure el
+incumplimiento. Esta suspensión no podrá ser menor a tres (3) meses ni mayor a un (1) año. Durante la suspensión no podrá utilizarse el bono de crédito fiscal para la cancelación de tributos nacionales;
+b) Baja del Régimen de Promoción de la Economía del Conocimiento; c) Revocación de la inscripción
+como beneficiario, la que tendrá efectos desde la fecha de inscripción o desde el momento de configuración del incumplimiento grave, de acuerdo a la gravedad del incumplimiento;
+d) Pago de los tributos no ingresados, con más sus intereses y accesorios;
+e) Devolución a la autoridad de aplicación del bono de crédito fiscal en caso de no haberlo aplicado;
+f) Inhabilitación para inscribirse nuevamente en el registro de beneficiarios;
+g) Imposición de multas por un monto que no podrá exceder del cien por ciento (100%) del beneficio
+otorgado o aprovechado en incumplimiento de la normativa aplicable.
+Para evaluación y valoración de las sanciones, la autoridad de aplicación deberá tener en cuenta la gravedad de la infracción, el perjuicio fiscal y los antecedentes de la empresa en el cumplimiento del régimen.
+Decaimiento de los beneficios de pleno derecho.

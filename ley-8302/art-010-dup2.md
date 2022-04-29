@@ -1,0 +1,3 @@
+Art. 10.- Los beneficiarios de la presente ley tendrán una reducción de un porcentaje respecto del monto total del impuesto a las ganancias correspondiente a la/s actividad/es promovida/s, determinado en cada ejercicio, de acuerdo con el siguiente esquema: sesenta por ciento (60%) para micro y pequeñas empresas, cuarenta por ciento (40%) para empresas medianas y veinte por ciento (20%) para grandes empresas. Dicho beneficio será aplicable tanto a las ganancias de fuente argentina como a las de fuente extranjera, en los términos que establezca la autoridad de aplicación.
+El presente beneficio será de aplicación para los ejercicios fiscales que se inicien con posterioridad a la fecha de inscripción del beneficiario en el mencionado registro.
+Retenciones y percepciones.

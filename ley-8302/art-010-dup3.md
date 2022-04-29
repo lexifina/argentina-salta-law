@@ -1,0 +1,1 @@
+ARTÍCULO 10.- La determinación final del monto del beneficio al que se refiere el artículo 10 de la Ley N° 27.506 y su modificatoria será el que surja de las declaraciones juradas que presenten las empresas y demás procedimientos establecidos por las autoridades competentes en relación con el impuesto a las ganancias.

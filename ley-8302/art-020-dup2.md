@@ -1,0 +1,1 @@
+ARTÍCULO 20.- A los fines de lo establecido por el artículo 18, apartado I de la Ley N° 27.506 y su modificatoria, el Fondo Fiduciario para la Promoción de la Economía del Conocimiento, en adelante FONPEC, será estructurado a través de un fideicomiso de administración y financiero.
