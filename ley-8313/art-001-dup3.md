@@ -1,0 +1,1 @@
+Artículo 1º - Se declara al montañismo actividad de interés deportivo, cultural y sociorrecreativo en todo el territorio nacional, reconociendo su influencia y aporte positivo en las tareas de exploración científicas, ambientales, educativas y de desarrollo humano.

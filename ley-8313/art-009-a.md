@@ -1,0 +1,2 @@
+Artículo 9º - A excepción del vínculo entre los socios de una asociación civil, queda excluida del alcance de esta ley cualquier actividad en la que medie pago a una persona física o jurídica que actúe como organizador, prestador de servicios y/o guía. La misma constituye una relación de consumo, y dicho
+vínculo contractual corresponde al régimen de las leyes de los servicios turísticos en general, leyes de defensa del consumidor y código civil, en lo pertinente.

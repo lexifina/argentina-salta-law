@@ -1,0 +1,1 @@
+Artículo 3º - Se reconoce la existencia de sitios, recorridos y espacios de montaña de tránsito y uso ancestral e histórico. Estos sitios, recorridos y espacios podrán ser determinados por las autoridades locales, provinciales o nacionales, por iniciativa propia o a propuesta de organizaciones de la comunidad, ciudadanos o asociaciones de montañismo.

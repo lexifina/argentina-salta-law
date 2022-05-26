@@ -1,0 +1,1 @@
+Artículo 2º - A los fines de la declaración del artículo precedente, se consideran actividades del montañismo el senderismo, el trekking, el ascensionismo y la escalada, así como las técnicas necesarias para concretarlas.
