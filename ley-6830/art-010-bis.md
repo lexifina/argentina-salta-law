@@ -1,0 +1,9 @@
+Art. 10 bis.- Cada Junta Calificadora de Méritos y Disciplina será presidida por un miembro que en pleno se designe. En su primera reunión elegirán un (1) Presidente y un (1) Vicepresidente que durarán un (1) año en sus funciones, pudiendo ser reelectos mientras duren sus mandatos.
+Cada Junta se reunirá en plenario, al menos una vez al mes, con el objeto de unificar criterios y resolver cuestiones inherentes a sus funciones.
+Las decisiones del Plenario se adoptarán por simple mayoría de los miembros presentes. El Presidente del Plenario tendrá doble voto en caso de empate.
+Las Juntas Calificadoras de Méritos y Disciplina deberán reunirse en Plenario Conjunto para dictar su reglamento interno; crear el calendario de actividades y procedimientos; tratar, a solicitud del interesado, cuestiones de derecho en asuntos relacionados a la aplicación de sanciones; o en situaciones generales que requieran unificación de criterios.
+Además, podrán reunirse en Plenario Conjunto a solicitud de mayoría simple de los miembros de cada Junta, del Presidente de cualquiera de ellas o de la Secretaría de Gestión Educativa para tratar asuntos transversales a la docencia con independencia del nivel o modalidad.
+El Presidente del Plenario Conjunto será elegido entre los dos Presidentes de cada Junta por simple mayoría de votos.
+En caso de no contar con quorum para constituirse en Plenario Conjunto deberá fijarse una nueva fecha de convocatoria, la que no podrá exceder los cinco (5) días hábiles. Si en la nueva fecha tampoco se cuenta con la mayoría para conformarse se constituirá con los miembros presentes.
+El Plenario de cada Junta requiere para su funcionamiento la presencia de más de la mitad de sus miembros. El Plenario Conjunto requiere para su funcionamiento la presencia de más de la mitad de los miembros de cada Junta.
+(Modificado por el Art. 4º de la Ley 8325/2022).

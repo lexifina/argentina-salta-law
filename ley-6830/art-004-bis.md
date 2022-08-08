@@ -1,0 +1,4 @@
+Art. 4° bis.- Extinción de la relación de empleo: la relación de empleo público se extingue cuando el agente hubiere alcanzado las condiciones de edad y servicios exigidos por las Leyes Jubilatorias. La autoridad competente podrá intimar al trabajador a que inicie los trámites pertinentes, debiendo en ese mismo acto poner a su disposición los certificados de servicios y demás documentación necesaria a tal fin. A partir de la fecha de dicha intimación, se mantendrá la relación de empleo hasta que el agente obtenga el beneficio previsional o por un plazo máximo de un año, lo que ocurra primero.
+Concedido el beneficio, o vencido dicho plazo, deberá emitirse el acto administrativo de extinción de la relación laboral. (Artículo incorporado por la Ley Nº 8064/2017)
+Capítulo II
+De los Deberes y los Derechos de los Educadores

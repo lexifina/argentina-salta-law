@@ -1,0 +1,1 @@
+Art. 3º - Transitoriamente, mientras en las Unidades Educativas dependientes de la Dirección General de Educación Básica General y Educación Inicial se imparta el Tercer Ciclo de EGB (completo o incompleto), los docentes que aspiren a cubrir cargos en ese Ciclo de Educación serán valorados por la Sala “A”.

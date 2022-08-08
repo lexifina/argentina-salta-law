@@ -1,0 +1,1 @@
+Art. 2º - Respecto de los docentes del Tercer Ciclo de Educación General Básica que aspiren a cubrir cargos u horas cátedras en Unidades Educativas dependientes de las Direcciones Generales de Educación General Básica y Educación Inicial, de Educación Polimodal y de Regímenes Especiales será competente la Sala “C” del órgano de valoración citado en el Artículo anterior.

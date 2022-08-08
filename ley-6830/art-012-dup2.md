@@ -1,0 +1,3 @@
+Art. 12.- Solicitudes de Becas (Art. 11, Inc. e), Ley Nº 6.830).
+Para el otorgamiento de becas acordadas por el Ministerio de Educación al personal docente de unidades educativas dependientes de las Direcciones Generales de Educación General Básica y Educación Inicial, de Educación Polimodal y de Regímenes Especiales, se requerirá la intervención previa de Junta Calificadora de Méritos y Disciplina a los fines de la elaboración del correspondiente cuadro de méritos.
+A dichos efectos se abocará al estudio de los antecedentes de los peticionantes, requiriendo informe a los órganos técnicos correspondientes.

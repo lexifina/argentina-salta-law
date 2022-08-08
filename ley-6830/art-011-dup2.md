@@ -1,0 +1,2 @@
+Art. 11.- Estudio de antecedentes (Art. 11, Incs. a) y b), Ley Nº 6.830).
+Se avocará al estudio de los antecedentes de los docentes que deban ser calificados, confeccionando los cuadros de orden de méritos, formulando las nóminas de aspirantes al ingreso, interinatos y suplencias, en los tiempos y las formas establecidos por la reglamentación, los que serán aprobados mediante la correspondiente Disposición, dándoles amplia difusión.

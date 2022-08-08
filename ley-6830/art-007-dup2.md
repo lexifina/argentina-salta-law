@@ -1,0 +1,3 @@
+Art. 7º.- Se encuentran comprendidos en las disposiciones del presente Reglamento los órganos de
+la Administración Pública Centralizada, Descentralizada, Entes Autárquicos, Empresas del Estado, Sociedades del Estado, Sociedades Anónimas con participación Estatal Mayoritaria, Sociedades de Economía Mixta, Obra Social y todo otro Organismo o Ente del Sector Público vinculado con la Administración, cualquiera fuere su situación jurídica.
+Exclúyese al personal de Seguridad, Policial y el Servicio Penitenciario de la Provincia, a los cuales les será aplicable lo dispuesto en la materia, por las Leyes Nºs. 6818 y 6719.
