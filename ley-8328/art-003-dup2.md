@@ -1,0 +1,1 @@
+ARTÍCULO 3° - El musicoterapeuta o licenciado en musicoterapia podrá ejercer su actividad profesional en forma autónoma o integrando equipos específicos, multi o interdisciplinarios, en forma privada o en instituciones públicas o privadas que requieran sus servicios.

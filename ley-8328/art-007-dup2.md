@@ -1,0 +1,1 @@
+ARTÍCULO 7° - No pueden ejercer la profesión los musicoterapeutas o licenciados en musicoterapia que estén excluidos o suspendidos en el ejercicio profesional a causa de una sanción disciplinaria, mientras dure la misma.
