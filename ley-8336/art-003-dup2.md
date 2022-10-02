@@ -1,0 +1,1 @@
+ARTICULO 3 - La autoridad de aplicación debe desarrollar un Programa Nacional de Prevención de las enfermedades cardiovasculares orientado a reducir la morbimortalidad de causa coronaria y cerebrovascular en la población general.
