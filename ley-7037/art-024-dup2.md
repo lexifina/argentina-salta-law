@@ -1,0 +1,4 @@
+Art. 24º.- (Reglamentario del Art. 19º de la Ley 7.037).
+Durante el desempeño de sus funciones específicas y dentro de la zona del siniestro, el Jefe o Sub Jefe de la Asociación de Bomberos Voluntarios tendrá poder de policía para el cumplimiento de sus fines.
+En caso de concurrir simultáneamente a un siniestro Cuerpos de Bomberos Voluntarios y Policía de la Provincia de Salta, el personal voluntario quedará supeditado a la conducción de las operaciones que disponga el personal de mayor jerarquía del segundo presente en el lugar. Esta subordinación no implica relación de dependencia laboral alguna con el Estado, ni la pérdida de mando del Oficial Voluntario sobre su personal a cargo, manteniendo una cadena de mando. El establecimiento de estas jerarquías no invalidan las competencias que correspondan a la
+autoridad de la Dirección Provincial de Protección Civil para coordinar las acciones respectivas.

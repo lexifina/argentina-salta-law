@@ -1,0 +1,2 @@
+Art. 18º.- (Reglamentario del Art. 15º de la Ley 7.037).
+Conforman el Cuerpo Auxiliar, el agrupamiento integrado por Bomberos de entre los dieciocho años (18) y los sesenta años (60) de edad que, con las previsiones que determine la reglamentación propia de cada cuerpo, presten servicios especiales en el campo profesional, docente, técnico, idóneo y/o científico, desempeñándose como apoyatura del Cuerpo Activo, con obediencia al mismo y sin intervenir en forma directa en las operaciones de un siniestro.

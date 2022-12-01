@@ -1,0 +1,2 @@
+Art. 11º.- (Reglamentario del Art. 7º de la Ley 7.037).
+En caso de disolución de una Asociación, los bienes materiales y equipos de acción contra incendios y otros siniestros, pasarán sin cargo alguno, previo inventario y avalúo, a la Dirección Provincial de Protección Civil para su distribución entre las Asociaciones de Bomberos Voluntarios más carenciadas, previa consulta a la Federación Provincial de BB.VV. La Dirección Provincial de Protección Civil no podrá apartarse de la misma, salvo resolución fundada.

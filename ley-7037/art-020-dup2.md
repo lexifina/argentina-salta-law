@@ -1,0 +1,3 @@
+Art. 20º.- (Reglamentario del Art. 15º de la Ley 7.037).
+Los Cuerpos de BB.VV. podrán contar con integrantes en condición de cadetes con edad mínima de 14 años y máxima de 18 años, siempre que estos posean expresa autorización de sus padres y/o tutores. Estos miembros serán formados previamente acorde los principios filosóficos que sustentan el servicio de bomberos voluntarios.
+Mientras se mantengan las condiciones establecidas en el párrafo precedente, estarán imposibilitados de participar en prestaciones de servicio reservadas al Cuerpo Activo y Cuerpo Auxiliar. Quien emita una orden que autorice su participación, será personalmente responsable de ella junto al Jefe del Cuerpo.

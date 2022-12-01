@@ -1,0 +1,5 @@
+Art. 4º.- (Reglamentario del Art. 3º de la Ley 7.037).
+El área geográfica o circunscripción de servicio de una Asociación de Bomberos Voluntarios abarcará total o parcialmente el territorio del Departamento, Municipio o Localidad donde tenga su
+asiento. La delimitación y/o modificación de la circunscripción de servicio deberá ser efectuada por la Dirección Provincial de Protección Civil, mediante resolución fundada a tales efectos.
+Dentro de los límites del área geográfica autorizada a una Asociación de Bomberos Voluntarios no podrán formarse otras, salvo que la Dirección Provincial de Protección Civil así lo disponga mediante resolución modificatoria, conforme criterio basado en cantidad máxima de habitantes y capacidad de respuesta de las Asociaciones, previa notificación a la Asociación cuya área operativa se vea disminuida.
+La Dirección Provincial de Protección Civil podrá delegar en la Junta Municipal de Protección Civil del Municipio en cuestión la delimitación del área geográfica de servicios, siempre que cuente con el asesoramiento de la Federación Salteña de Bomberos Voluntarios.

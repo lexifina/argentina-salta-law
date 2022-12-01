@@ -1,0 +1,2 @@
+Art. 7º.- (Reglamentario del Art. 4º de la Ley 7.037)
+El patrimonio de la Federación o Federaciones Provinciales de Asociaciones de Bomberos Voluntarios se constituirá con el aporte de las asociaciones afiliadas, donaciones, subvenciones, subsidios y con el producido de cualquier actividad lícita que realice. La realización de rifas, bingos, loterías u otros juegos se deben regir por las normativas dictadas por el Ente Regulador de los Juegos de Azar (Enreja) o el Organismo que en un futuro lo reemplace.
