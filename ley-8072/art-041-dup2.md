@@ -1,0 +1,6 @@
+Artículo 41.- Publicidad e invitaciones. (Art. 30 Ley 8.072)
+En cada uno de los procedimientos de selección previstos, la publicidad de las actuaciones deberá ajustarse a las siguientes reglas:
+1) Los días de antelación a la fecha fijada para la apertura o vista de las ofertas se computarán a partir del día hábil inmediato siguiente al de la última publicación y sin contar dentro del plazo de antelación el día de apertura.
+2) Los plazos de publicación y antelación fijados son mínimos y podrán ampliarse en los casos de procedimientos de selección que por su importancia, complejidad u otras características lo hicieran necesario.
+3) Toda vez que corresponda cursar invitaciones por cualquier medio deberá dejarse constancia en el expediente de la fecha y hora de la realización de la diligencia, indicándose el nombre o razón social del destinatario, así como el domicilio, número de fax o dirección de correo electrónico a la cual se hubiera remitido.
+4) En todos los medios por los cuales se den a conocer las convocatorias de los procedimientos de selección y de sus respectivas circulares aclaratorias y modificatorias se deberá hacer constar que se podrá tomar vista o se podrá descargar el pliego de bases y condiciones, en el sitio de internet de la Provincia, consignando la dirección del mismo.

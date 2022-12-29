@@ -1,0 +1,2 @@
+Artículo 70.- Responsabilidades. (Art. 50 Ley 8.072)
+Serán aplicables a los fines de las responsabilidades emergentes de los procesos de contratación, las normas previstas en la Ley 8.072, esta reglamentación y las que se establezcan en los pliegos de bases y condiciones o la documentación que haga sus veces en cada contratación en particular, sin perjuicio de las normas de fondo referentes a daños y perjuicios para los casos en que el Estado o un particular sea damnificado por el accionar de un contratista.

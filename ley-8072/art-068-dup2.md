@@ -1,0 +1,11 @@
+Artículo 68.- Prórroga del Contrato. (Art. 48 Ley 8.072)
+La prórroga otorgada al adjudicatario, no puede exceder en ningún caso el plazo fijado para el cumplimiento del contrato, ello siempre que así se hubiera previsto en el pliego de bases y condiciones particulares o en la documentación que haga sus veces.
+Prórrogas:
+1) Los pliegos de bases y condiciones particulares podrán prever la opción de prórroga a favor del Estado, cuando se trate de contratos de suministros de cumplimiento sucesivo o de prestación de servicios. Los contratos de suministro en los que el cumplimiento de la prestación se agotara en una única entrega, no podrán prorrogarse.
+2) En los casos en que se hubiese previsto o estipulado en los pliegos la facultad de prórroga, los contratos se podrán prorrogar por única vez y por un plazo igual o menor al del contrato inicial.
+3) La prórroga deberá realizarse en las condiciones pactadas originariamente. Si los precios de mercado hubieren variado, la jurisdicción o entidad contratante, a pedido del oferente aplicará el artículo 49 de la Ley 8.072 a los fines de adecuar los precios estipulados durante el plazo original del contrato. En caso de no llegarse a un acuerdo, no podrá hacerse uso de la opción de prórroga y no corresponderá la aplicación de penalidades.
+Se podrá disponer la continuidad del contrato, una vez vencido el plazo de su prórroga, siempre que se encontrara en curso el nuevo procedimiento de contratación, para lo cual deberá ineludiblemente, bajo pena de nulidad, emitirse un único acto administrativo que prevea simultáneamente la prórroga del contrato vencido y el llamado del nuevo procedimiento de contratación. En este supuesto, el acto administrativo que autorice la prórroga será suscripto por el funcionario que resulte competente de acuerdo con los niveles de decisión y cuadro de competencias que aprueba la presente
+reglamentación o el que en el futuro lo reemplace y según el monto que resulte de la continuidad
+DECRETO Nº
+propiciada, individualmente considerada.
+En caso de corresponder, el adjudicatario deberá dentro de los cinco (5) días hábiles de emitido el acto administrativo correspondiente, integrar la garantía de cumplimiento de contrato en el porcentaje continuado o prorrogado.

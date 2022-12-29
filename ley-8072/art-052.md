@@ -1,0 +1,4 @@
+Artículo 52.- Pre adjudicación. (Art. 37 Ley 8.072)
+Para el examen de las propuestas presentadas, la unidad operativa de contrataciones confeccionará un cuadro comparativo de las ofertas en un plazo no mayor de cinco (5) días hábiles posteriores al plazo de vista y observación de las ofertas, salvo que por la naturaleza de la contratación se exijan plazos diferentes o sean previstos en los pliegos de bases y condiciones o en la documentación que haga sus veces.
+Para efectuar una comparación homogénea, se deben tener en cuenta las variantes que se presenten en las ofertas, cuando ellas hayan sido requeridas y se adecuen a las necesidades del organismo, salvo que por la naturaleza o destino del bien o servicio no fuere posible aceptar las mismas.
+A fin de determinar la elegibilidad de las personas humanas o jurídicas que presenten ofertas podrá consultarse la información obrante en base de datos de organismos públicos tanto nacionales como provinciales.
