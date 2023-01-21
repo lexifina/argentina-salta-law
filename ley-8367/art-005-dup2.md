@@ -1,0 +1,2 @@
+Artículo 5°- La autoridad de aplicación deberá garantizar, en el marco del proceso de confección de los lineamientos generales establecidos en el artículo 4° la participación del Consejo Nacional de
+Asuntos Relativos a las Islas Malvinas, Georgias del Sur, Sandwich del Sur y los Espacios Marítimos e Insulares correspondientes, creado mediante ley 27.558, las instituciones del sector académico y científico especializados en la materia, así como de la sociedad civil y sus organizaciones.

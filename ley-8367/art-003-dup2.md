@@ -1,0 +1,1 @@
+Artículo 3°- La capacitación de las máximas autoridades de los poderes Ejecutivo, Legislativo y Judicial de la Nación estará a cargo de la autoridad de aplicación.

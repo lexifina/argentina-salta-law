@@ -1,0 +1,2 @@
+Artículo 2°- A los fines de la presente ley se entiende como la Cuestión de las Islas Malvinas a la situación colonial en la que se encuentran las Islas Malvinas, Georgias del Sur y Sandwich del Sur y los espacios marítimos correspondientes, parte integrante del territorio argentino, que desde 1833 son objeto de una disputa de soberanía entre la Argentina y el Reino Unido reconocida por la Asamblea General de las Naciones Unidas.
+La mencionada capacitación se llevará a cabo en el marco de lo dispuesto por la Disposición Transitoria Primera de la Constitución Nacional.

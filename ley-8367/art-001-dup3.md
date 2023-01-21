@@ -1,0 +1,1 @@
+Artículo 1°- Establécese la capacitación obligatoria, periódica y permanente en la "Cuestión de las Islas Malvinas" para todas las personas que se desempeñen en la función pública en todos sus niveles y jerarquías en los poderes Ejecutivo, Legislativo y Judicial de la Nación.
