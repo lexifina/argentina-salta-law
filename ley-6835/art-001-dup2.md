@@ -1,0 +1,1 @@
+Artículo 1º - Pónese en vigencia la norma denominada "Para la Prestación de los Servicios Públicos de Jurisdicción Provincial y Orgánica del Ente Regulatorio de Dichos Servicios", que como Anexo forma parte del presente.
