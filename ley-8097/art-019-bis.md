@@ -1,0 +1,9 @@
+Art. 19 bis.- Remisión. El o la fiscal penal juvenil, con acuerdo de la niña, niño o adolescente y su defensor o defensora, y del querellante si lo hubiere, podrá disponer la remisión del caso a los programas restaurativos o de orientación a ejecutarse en la órbita de la Autoridad Administrativa de Protección de Derechos, antes del decreto de citación a audiencia de imputación. Dicha disposición debe ser notificada a la víctima, y es recurrible.
+Para su aplicación se requiere el compromiso y aceptación expresa del adolescente, sus padres, tutores o responsables en la participación de los programas, cuya duración no podrá exceder de un (1) año.
+Si fuera el caso, la remisión procurará el resarcimiento del daño a quien hubiere sido perjudicado.
+No procederá este instituto en caso de grave afectación de derechos, delitos dolosos contra la vida, la integridad sexual, lesiones gravísimas y/o delitos cometidos con armas.
+Una vez decretada la citación a audiencia de imputación, corresponderá al juez o la jueza penal juvenil, verificar la razonabilidad del acuerdo y resolver la incorporación a los programas restaurativos. Dicha resolución es recurrible.
+La Autoridad Administrativa informará el cumplimiento del programa, y se resolverá el archivo de las actuaciones o sobreseimiento de la niña, niño o adolescente según corresponda.
+En caso de incumplimiento, se revocará la remisión dispuesta, previa verificación de las causales que lo provocaron. La revocación determinará la continuidad de la investigación penal, cuyo plazo suspende el decreto o resolución de remisión.
+Las derivaciones se realizarán conforme a protocolos que en conjunto se elaborarán por el Ministerio Público, el Poder Judicial y la Autoridad Administrativa de Protección de Derechos.
+(Artículo incorporado por el art. 7º de la Ley Nº8389/2023)
