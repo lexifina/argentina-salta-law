@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Obsérvase en forma parcial el proyecto de ley sancionado por las Cámaras Legislativas, en sesión de fecha 30 de noviembre del corriente año, ingresado como Expediente Nº 91-49133/23 el día 1 de diciembre de 2023, vetándose los artículos 2º, 3º, 4º, 5º y 6º, en razón de los motivos expuestos en el considerando del presente instrumento.
