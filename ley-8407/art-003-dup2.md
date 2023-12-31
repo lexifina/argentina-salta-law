@@ -1,0 +1,4 @@
+ARTICULO 3.- Serán considerados como trabajadores de teatro quienes se encuentren dentro de las siguientes previsiones:
+a) Los que tengan relación directa con el público, en función de un hecho teatral;
+b) Los que tengan relación directa con la realización artística del hecho teatral, aunque no con el público;
+c) Los que indirectamente se vinculen con el hecho teatral sean investigadores, instructores o docentes de teatro.
