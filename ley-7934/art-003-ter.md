@@ -1,0 +1,2 @@
+Art. 3º ter.- Prohíbase en los Institutos Educativos Públicos de Gestión Privada, actos u omisiones de hostigamiento, exclusión y discriminación motivados en la morosidad en el pago, de cuotas o aranceles. A los efectos del presente artículo, se considera acto discriminatorio publicar por cualquier medio la deuda en concepto de cuotas o aranceles del alumnado, debiendo gestionar el cobro de los mismos exclusivamente con padres, madres, tutores o representantes legales
+(Artículo incorporado por art. 3º de la Ley Nº 8413/2024).-
