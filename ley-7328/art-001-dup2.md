@@ -1,0 +1,2 @@
+Artículo 1º.- Obsérvase en forma parcial el Proyecto de Ley sancionado por las Cámaras Legislativas en sesión realizada el 30 de noviembre corriente año, por el cual se aprueba la Ley Orgánica del Ministerio Público, conforme a lo establecido en los artículos 131 y 144, inciso,4) de la Constitución Provincial y en el artículo 11 de la Ley Nº 7.190, ingresado bajo Expediente Nº 91- 11.999/04 Referente, en fecha 03/12/2004, como sigue:
+“Art. 16: Vétase la frase "...al noventa por ciento (90%)..."
