@@ -1,0 +1,2 @@
+Art. 4 Bis.- Los propietarios o explotadores de guarderías y playas de estacionamiento de vehículos, deberán contratar un seguro integral que otorgue cobertura suficiente respecto de los vehículos bajo su custodia.
+La aplicación de esta norma regirá aún cuando el servicio de guardería y/o playa tenga el carácter de adicional a una explotación comercial principal. (Artículo incorporado por Art. 1º de la Ley 7509/2008).-
