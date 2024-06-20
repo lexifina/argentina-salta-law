@@ -1,0 +1,3 @@
+Artículo 2º- El Plan Federal de Capacitación sobre Derechos de Niñas, Niños y Adolescentes estará destinado a las personas que se desempeñan en áreas y dependencias de los poderes Ejecutivo, Legislativo y Judicial del Estado nacional, que forman parte corresponsable del Sistema Integral de Promoción y Protección de los Derechos de las Niñas, Niños y Adolescentes.
+Podrán, también ser destinatarios del citado plan, agentes de las administraciones provinciales, municipales y de organizaciones sociales, deportivas, recreativas y culturales, en el marco de convenios de cooperación y colaboración con la autoridad de aplicación de la presente ley.
+Alcance.
