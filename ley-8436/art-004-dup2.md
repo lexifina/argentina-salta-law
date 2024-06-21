@@ -1,0 +1,4 @@
+Artículo 4°- Son objetivos de la presente ley:
+a) Dotar a las/os profesionales de la salud que intervienen al momento del parto de procedimientos de actuación estandarizados que faciliten la atención sanitaria de aquellas mujeres, personas gestantes y familias que sufren una muerte perinatal;
+b) Posibilitar mediante diversas estrategias que las mujeres, personas gestantes, pareja y/o familias puedan atravesar y aceptar la pérdida en un ambiente de contención y cuidado, y con el acompañamiento de profesionales especialistas en la materia;
+c) Facilitar a las personas incluidas en el inciso b) del presente artículo la información necesaria acerca de las opciones terapéuticas, gestiones a realizar, documentación a cumplimentar y consultas sucesivas, a fin de que puedan decidir las alternativas más pertinentes asegurando el acompañamiento de las/os profesionales durante todo el proceso.

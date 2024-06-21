@@ -1,0 +1,1 @@
+Artículo 2º- Se entiende por muerte perinatal aquella adoptada por la Dirección Nacional de Estadísticas de Información de la Salud del Ministerio de Salud de la Nación, en el marco de la definición de la Organización Mundial de la Salud.
