@@ -1,0 +1,1 @@
+Art. 12. El transportista que no entregare a los usuarios la correspondiente guía o contraseña de equipajes, o proporcionara una guía que no cumpla con las prescripciones que establezca la Autoridad de Aplicación, será sancionado con multa de 1 US a 10 US.

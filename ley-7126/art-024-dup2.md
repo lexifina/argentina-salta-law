@@ -1,0 +1,1 @@
+Art. 24 - (Artículo 24º Ley Nº 7.126) Dentro del plazo dispuesto en el Artículo 14 del presente, la Autoridad de Aplicación deberá establecer la metodología de cálculo para la determinación de las tarifas, con arreglo a los principios establecidos en el Artículo 24 de la ley.

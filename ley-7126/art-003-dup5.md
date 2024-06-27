@@ -1,0 +1,1 @@
+Art. 3. La presentación de declaraciones juradas, con datos falsos, será sancionada con multa de 10 US a 1.000 US, pudiendo disponerse, atendiendo a la gravedad de la falta, la suspensión o caducidad de la concesión, licencia, permiso, autorización o inscripción en el registro, según corresponda.

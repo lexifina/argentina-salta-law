@@ -1,0 +1,1 @@
+Art. 8. La disminución del monto de la multa a que se refiere el artículo anterior, no será considerada como tal a los efectos de nuevas sanciones en caso de reincidencias; sin perjuicio de lo cual, ello no impedirá al infractor acogerse a los beneficios del régimen de presentación espontánea.

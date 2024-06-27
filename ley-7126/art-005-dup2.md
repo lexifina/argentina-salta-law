@@ -1,0 +1,1 @@
+Art 5º - (Artículo 5º Ley Nº 7.126) Designase a la Secretaria de Transporte y Servicios Públicos como Autoridad de Aplicación de la Ley Nº 7.126 y de la presente reglamentación, quedando facultada para el dictado de las normas necesarias y conducentes para el cumplimiento de sus competencias y atribuciones.

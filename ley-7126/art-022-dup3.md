@@ -1,0 +1,1 @@
+Art. 22. La falta no denunciada, la deficiente exposición o conservación de la chapa patente o de la Ficha de Inspección Técnica Periódica, o de todo otro documento o información cuya exhibición externa o interna en los vehículos fuera expresamente dispuesta por la por la Autoridad de Aplicación, harán posible al transportista, de multa de 1 US a 10 US.

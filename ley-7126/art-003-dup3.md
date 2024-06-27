@@ -1,0 +1,1 @@
+Art 3º - (Artículo 3º Ley Nº 7.126) Para los casos previstos en el Artículo 3º Inc. d), la revisión técnica obligatoria; los seguros exigibles y la habilitación de conductores será la exigida para los servicios de transporte regular.

@@ -1,0 +1,1 @@
+Artículo 1. El establecimiento o prestación de servicios de autotransporte de pasajeros bajo cualquiera de las modalidades previstas por la Ley Nº 7.126 sin estar legalmente habilitados, será sancionada con multa de 10 US a 1.000 US.

@@ -1,0 +1,1 @@
+Art. 23. La inobservancia de las condiciones esenciales de higiene en los vehículos y en las instalaciones fijas, o el desempeño de la función de conducción en condiciones higiénicas inadecuadas, hará pasible al transportista de una multa de 1 US a 50 US.

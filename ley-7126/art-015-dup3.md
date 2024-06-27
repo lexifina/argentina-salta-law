@@ -1,0 +1,1 @@
+Art. 15. - La conducción imprudente o a excesiva velocidad, en infracción a las normas de tránsito; la prestación del servicio con conductores que no hubieran cumplido con el descanso mínimo reglamentario, o se encontraren en estado de ebriedad, o que por cualquier causa vieran afectada su capacidad psicofísica para la conducción, serán sancionadas con multas de 5 US a 500 US.

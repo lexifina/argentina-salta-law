@@ -1,0 +1,1 @@
+ARTÍCULO 5º.- Transfiéranse los bienes existentes de la Comisión Provincial de Regulación de Transporte a la Autoridad Metropolitana de Transporte, los cuales quedan incorporados a su patrimonio previo inventario de los mismos, facultándose al Ministerio de Hacienda y Finanzas a disponer las modificaciones presupuestarias y trámites que resulten necesarios.

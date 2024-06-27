@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Déjase establecido que a partir de la fecha del presente, la Autoridad de Aplicación de la Ley N° 7.126, sus normas reglamentarias y complementarias, será la Autoridad Metropolitana de Transporte, quedando facultada para el dictado de las normas necesarias y conducentes para el cumplimiento de las disposiciones establecidas en dichas normas.

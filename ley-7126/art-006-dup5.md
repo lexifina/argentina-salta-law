@@ -1,0 +1,1 @@
+ARTÍCULO 6º.- Comuníquese a la Autoridad Metropolitana de Transporte y personal que presta funciones en la Comisión Provincial de Regulación de Transporte dependiente de la Secretaría de Servicios Públicos de Jefatura de Gabinete de Ministros.

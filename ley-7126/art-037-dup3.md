@@ -1,0 +1,1 @@
+Art. 37. El transportista que, en ocasión de los accidentes que sufrieren los vehículos de su flota, no remitiere dentro de cinco (5) días del hecho, la denuncia o informe de lo ocurrido, será sancionado con multa 1 US a 5 US.

@@ -1,0 +1,1 @@
+Art. 7. El infractor que dentro del plazo de cinco (5) días de que le fuera confeccionada el acta de infracción por la que pudiera caberle una sanción pecuniaria, se presentare espontáneamente y reconociere la infracción procediendo al pago de la misma, gozará de una quita del treinta por ciento (30%) del monto de la multa que le corresponde.

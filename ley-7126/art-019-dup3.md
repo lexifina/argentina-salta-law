@@ -1,0 +1,1 @@
+Art. 19. Las modificaciones que sin previa autorización de la Autoridad de Aplicación se introdujeran en los vehículos y alteraran las características originales de habilitación, serán sancionadas con multas de 10 US a 100 US. Como medida accesoria podrá prohibirse la utilización de tales vehículos, en tanto no se supriman las variaciones antirreglamentarias.

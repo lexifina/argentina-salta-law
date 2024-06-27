@@ -1,0 +1,1 @@
+Art. 6. Vencido el plazo para presentar el descargo, ejercicio de la defensa y ofrecimiento de pruebas, sin que éstas se hubieran concretado o producidas las mismas, se resolverá sin otra sustanciación, dictado el acto administrativo definitivo.

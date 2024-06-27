@@ -1,0 +1,1 @@
+Art. 6. Las violaciones de tráfico de carácter interjurisdiccional en que incurrieren los servicios nacionales que se desarrollen parcialmente dentro del territorio de la provincia de Salta, será sancionada con multa de 10 US a 300 US.

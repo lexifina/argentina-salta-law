@@ -1,0 +1,3 @@
+Art. 14 - (Artículo 14º Ley Nº 7.126) En el plazo de noventa (90) días, la Autoridad de Aplicación deberá rediseñar los corredores de los servicios públicos de transporte interurbano de pasajeros,
+conforme los objetivos enunciados en el Artículo 2º de la ley.
+Para la determinación posterior de nuevos corredores se tendrán en consideración las necesidades o conveniencias públicas detectadas o previsibles, persiguiendo una finalidad de interés general; a tal efecto, para establecer la existencia de una necesidad colectiva de Trasporte insatisfecha, la Autoridad de Aplicación podrá convocar a Audiencias Públicas, debiendo organizar y reglamentar el régimen de las mismas.

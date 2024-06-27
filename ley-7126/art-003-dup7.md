@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- Dispónese que la Autoridad Metropolitana del Transporte se vinculará funcionalmente con el Poder Ejecutivo a través de la Secretaría de Servicios Públicos dependiente de la Jefatura de Gabinete de Ministros.

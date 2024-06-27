@@ -1,0 +1,1 @@
+Art.20 - (Artículo 20º Ley Nº 7.126) La Autoridad de Aplicación garantizará el ejercicio por parte de los usuarios de los derechos que esta ley les asigna. A tal fin dictará el reglamento de atención al usuario en el que se contemple las vías y procedimientos para la defensa de sus derechos y cumplimiento de sus obligaciones.

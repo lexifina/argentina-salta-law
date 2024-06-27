@@ -1,0 +1,1 @@
+Art. 26. Se sancionará con multa de 1 US a 10 US, al transportista cuyo personal no obrara en forma debida para impedir la alteración del orden o la comisión de actos indecorosos o contrarios a la moral y buenas costumbres por parte de usuarios o terceros, a bordo de vehículos a su cargo o en los locales públicos de la empresa.

@@ -1,0 +1,2 @@
+Art. 3. Las actuaciones sumariales se iniciarán: a. Por actas de infracción labradas por la Autoridad de Control y Fiscalización. b. De oficio, por informes o denuncias de las autoridades nacionales, provinciales o municipales. c. Por denuncias de los usuarios o de los concesionarios, licenciatarios
+y/o permisionarios. d. Por denuncias de organismos gubernamentales o no gubernamentales, ante la comisión de actos que afecten o pudieren afectar los derechos o intereses legítimos de los usuarios.

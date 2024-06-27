@@ -1,0 +1,1 @@
+Art. 14. Se sancionará con multa de 1 US a 10 US, al transportista que no respetare el procedimiento que estableciere la Autoridad de Aplicación para la disposición de objetos olvidados o extraviados por los pasajeros, sin perjuicio de los derechos de éstos de reclamar por el daño que pudieren haber sufrido.

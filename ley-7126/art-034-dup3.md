@@ -1,0 +1,1 @@
+Art. 34. El transportista que no remitiere los datos y otros elementos requeridos por la Autoridad de Aplicación o lo hiciere fuera de los plazos establecidos al efecto, será sancionado con multa de 1 US a 100 US.

@@ -1,0 +1,1 @@
+Art. 5. El agente actuante hará entrega al infractor de una copia legible del acta labrada conforme a lo dispuesto en el artículo anterior, haciendo constar en su caso la negativa de éste a recepcionarla. Cumplido ello, se considerará suficiente notificación de los hechos que se le imputan al infractor y del emplazamiento para realizar el descargo.

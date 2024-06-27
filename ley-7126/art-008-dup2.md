@@ -1,0 +1,3 @@
+Art 8º - (Artículo 8º Ley Nº 7.126) Estarán a cargo de la Autoridad de Aplicación el control y fiscalización del cumplimiento de las disposiciones contenidas han la Ley Nº 7.126, en la presente reglamentación y demás normas operativas que se dicten.
+Encomiéndase a la Autoridad de Aplicación los estudios previos y la realización de un proceso de selección en los términos de la Ley Nº 6.838, para la contratación de la operación de control y fiscalización en todo el territorio provincial.
+Las erogaciones que se realicen como contraprestación en tal contratación serán afrontadas en su totalidad con lo recaudado en concepto de la tasa, prevista en el Artículo 22 de la ley.

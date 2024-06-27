@@ -1,0 +1,2 @@
+Art. 21. El transportista cuyo vehículo tuviere deficiencias de índole mecánica, de carrocería, de instrumental, carencia de elementos de seguridad o de inadecuado funcionamiento de esos dispositivos, será sancionado con multa de 1 US a 10 US. Si las irregularidades afectasen o pudiesen afectar la seguridad del servicio, de los usuarios o de los terceros no transportados, se aplicará una multa de 10 US a 300US.
+En ambos supuestos se podrá simultáneamente disponer la desafectación de las unidades hasta su puesta en condiciones reglamentaria.

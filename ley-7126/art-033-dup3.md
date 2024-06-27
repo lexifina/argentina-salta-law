@@ -1,0 +1,1 @@
+Art. 33. Se sancionará con multa de1 US a 5 US, al transportista que no pusiere en conocimiento de la Autoridad de Aplicación, dentro de las cuarenta y ocho (48) horas de producido, todo hecho ajeno a su voluntad que causare la alteración o supresión de cualquiera de las modalidades del servicio que preste.

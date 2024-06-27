@@ -1,0 +1,1 @@
+Art. 28 - (Artículo 28º Ley Nº 7.126) Las sanciones que aplicare la Autoridad de Aplicación se graduarán conforme a las pautas establecidas por el Artículo 26 de la Ley Nº 7.126, y se ajustarán a las escalas mínimas y máximas que se establecen en Sub-Anexo II del presente.
