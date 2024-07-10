@@ -1,0 +1,3 @@
+Artículo 9º- Los sujetos beneficiarios alcanzados por la presente ley que adicionalmente desarrollen otras actividades llevarán su contabilidad de manera tal que permita la determinación y evaluación en forma separada de las actividades relativas a la producción y/o elaboración de productos orgánicos promovidos por la presente ley de las demás. La imputación de gastos compartidos con actividades ajenas a las promovidas se atribuirá contablemente respetando criterios objetivos de reparto, como cantidad de personal empleado, monto de salarios pagados, espacio físico asignado u otros, siendo esta enumeración meramente enunciativa y no limitativa.
+CAPÍTULO III
+REGISTRO DE PRODUCTORES/AS Y ELABORADORES/AS ORGÁNICOS/AS

@@ -1,0 +1,1 @@
+Artículo 5º- Los sujetos alcanzados por la presente ley serán considerados beneficiarios/as a los efectos fiscales desde la notificación de la incorporación al registro al que hace mención el artículo 10 de la presente ley.
