@@ -1,0 +1,1 @@
+ARTÍCULO 6 - La autoridad de aplicación anualmente aprobará un programa nacional de cartas geológicas cuyo cumplimiento se ejecutará por administración, convenios o contratos con organismos del sector público o privado.

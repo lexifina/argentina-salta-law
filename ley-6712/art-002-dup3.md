@@ -1,0 +1,2 @@
+ARTÍCULO 2 - Las cartas geológicas constituirán el fundamento necesario para realizar el inventario de los recursos naturales no renovables, estimular las inversiones y asentamientos poblacionales en las áreas de frontera e identificar zonas de riesgo geológico.
+Aportarán al mismo tiempo a la preservación del medio ambiente, la prevención de los riesgos geológicos y la defensa nacional.

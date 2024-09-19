@@ -1,0 +1,4 @@
+ARTÍCULO 20. - Sustitúyese el segundo párrafo del art. 27 del Código de Minería, el que quedará redactado de la siguiente manera:
+La unidad de medida de los permisos de exploración es de quinientas (500) hectáreas.
+Los permisos constarán de hasta 20 unidades. No podrán otorgarse a la misma persona, a sus socios, ni por interpósita persona, más de diez (10) permisos ni doscientas (200) unidades por provincia. Tratándose de permisos simultáneos colindantes el permisionario podrá escoger a cuáles de estos permisos se imputarán las liberaciones previstas en el art. 28.
+Los actuales solicitantes y titulares de permisos de exploración tendrán prioridad para ajustar sus medidas conforme a las disposiciones del presente artículo, siempre que formulen la respectiva solicitud dentro del término de treinta (30) días corridos de la publicación de la presente ley.

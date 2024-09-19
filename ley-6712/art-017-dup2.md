@@ -1,0 +1,1 @@
+ARTÍCULO 17. - Para los casos previstos en el artículo 217 del Código de Minería, el concesionario abonará también, pesos doscientos ($ 200) por cada cien metros cuadrados (100 m2) de la superficie de exploración por año.

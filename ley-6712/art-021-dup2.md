@@ -1,0 +1,1 @@
+ARTÍCULO 21. - Sustitúyese el último párrafo del art. 226 del Código de Minería por el siguiente: En el caso del primer párrafo, el canon anual por pertenencia será de tres (3) veces el de una pertenencia ordinaria de la misma categoría; en el segundo párrafo seis (6) veces en el tercero y cuarto, diez (10) veces.
