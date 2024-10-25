@@ -1,0 +1,2 @@
+ARTÍCULO 2°.- Instrúyese a la ADMINISTRACIÓN NACIONAL DE MEDICAMENTOS, ALIMENTOS Y TECNOLOGÍA MÉDICA (ANMAT) con el fin de que eleve a la Autoridad de
+Aplicación las modificaciones necesarias para la adaptación de las disposiciones del CÓDIGO ALIMENTARIO ARGENTINO (CAA) y del REGISTRO DE ESPECIALIDADES MEDICINALES (REM) de la citada Administración Nacional, de acuerdo a lo establecido en la ley objeto de la Reglamentación.

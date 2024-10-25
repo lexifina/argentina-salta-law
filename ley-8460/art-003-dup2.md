@@ -1,0 +1,1 @@
+ARTÍCULO 3°.- Facúltase al MINISTERIO DE SALUD, en su carácter de Autoridad de Aplicación de la Ley N° 26.588 y su modificatoria, a dictar las normas complementarias y/o aclaratorias que resulten necesarias para la efectiva aplicación de las disposiciones del presente.
