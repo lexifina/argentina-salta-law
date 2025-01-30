@@ -1,0 +1,5 @@
+Art. 72 bis.- Equipos conjuntos de investigación e investigaciones conjuntas. En aquellos casos en los que el delito se hubiere cometido y/o tuviere consecuencias, a su vez, en otras jurisdicciones diferentes a la de Salta, el Fiscal a cargo de la investigación podrá instar a las autoridades correspondientes de aquellas otras jurisdicciones para conformar equipos conjuntos de investigación, en aras de facilitar las investigaciones o procedimientos penales, cuando se considere de especial utilidad una mayor coordinación.
+Los procedimientos y condiciones que rijan el funcionamiento de los equipos conjuntos de investigación, así como sus fines específicos; composición; funciones; duración y eventuales períodos de prórroga; condiciones de confidencialidad; y demás condiciones de funcionamiento, serán los acordados entre las autoridades competentes de las jurisdicciones involucradas.
+Las pruebas obtenidas por cualquiera de las partes integrantes del equipo referido, tendrán valor y podrán ser utilizadas por todas ellas para la resolución de la causa que motivó su conformación.
+(Artículo incorporado por el art. 8º de la Ley Nº 8386/2023)
+Sección II Extradición
