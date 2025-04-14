@@ -1,0 +1,1 @@
+ARTICULO 7º — El Ministerio de Salud de la Nación debe promover acuerdos con las autoridades jurisdiccionales, para proveer atención integral de la salud a las personas con EPF, que no estén comprendidas en el artículo 6º de la presente ley, conforme lo establezca la reglamentación.
