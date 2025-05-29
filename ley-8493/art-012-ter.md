@@ -1,0 +1,6 @@
+Artículo 12 ter: La persona que intervenga en la toma de muestras, obtención de evidencias y
+determinación de perfiles genéticos deberá mantener la reserva de los antecedentes y la integridad de la cadena de custodia, de acuerdo con las exigencias que imponga la reglamentación de la presente ley, la legislación sobre protección de datos personales y toda disposición que dicte la autoridad de aplicación de la ley 25.326.
+En el marco de la presente ley queda prohibida la utilización de muestras de ADN para cualquier fin diferente del establecido. El incumplimiento de la obligación de reserva conllevará la aplicación de las sanciones penales, administrativas y civiles que correspondan.
+Quienes, interviniendo en alguno de los procedimientos regulados en la presente ley debido a su
+cargo o profesión, permitieren el acceso a los registros o exámenes a personas no autorizadas, o los divulgaren o usaren indebidamente serán pasibles de las sanciones administrativas, penales y civiles que correspondan. También lo serán quienes, sin tener las calidades referidas precedentemente, a
+sabiendas e ilegítimamente o violando sistemas de confidencialidad y seguridad de datos accedieren a los registros, exámenes o muestras de ADN, los divulgaran o los usaren indebidamente.

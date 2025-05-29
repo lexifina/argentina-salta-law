@@ -1,0 +1,1 @@
+Artículo 12 quáter: Créase la Comisión Nacional de Huellas Genéticas a los efectos de coordinar, articular, brindar asesoramiento y seguimiento respecto de la implementación y funcionamiento del Registro Nacional de Datos Genéticos Vinculados con la Investigación Criminal.

@@ -1,0 +1,3 @@
+Artículo 1° - Créase el Registro Nacional de Datos Genéticos Vinculados con la Investigación Criminal sobre la base de los perfiles genéticos de un análisis de ácido desoxirribonucleico (ADN) en las circunstancias y bajo las modalidades establecidas en la presente ley.
+El registro contará con una base de datos de perfiles genéticos y una base de datos filiatorios, no relacionadas entre sí.
+El registro funcionará para las investigaciones en el fuero federal y nacional, y las provincias y la Ciudad Autónoma de Buenos Aires podrán firmar convenios con el registro con el fin de que sus poderes judiciales y ministerios públicos puedan utilizar sus servicios.
