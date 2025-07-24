@@ -1,0 +1,3 @@
+Art. 25 bis.- En virtud del Consenso Fiscal, establécese para todos los actos, contratos u operaciones, actuaciones administrativas o notariales, e instrumentos públicos y privados, a excepción de transferencias de inmuebles y automotores y actividades hidrocarburíferas y sus servicios complementarios, un tope de alícuota máxima del Impuesto a los Sellos del siete y medio por mil (7,5%o) para el año 2019; del cinco por mil (5%o) para el año 2020; del dos y medio por mil (2,5%o) para el año 2021 y del cero por mil (0%o) a partir del año 2022.
+(Art. Incorporado por art. 4º de la Ley Nº 8064/2017)
+TASAS RETRIBUTIVAS DE SERVICIOS

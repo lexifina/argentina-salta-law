@@ -1,0 +1,3 @@
+Art. 179 Bis.- La Dirección podrá eximir de la obligación de inscripción y/o presentación de declaraciones juradas a los contribuyentes de este Impuesto, que se encuentren sujetos a regímenes de retención en la fuente por el total de la alícuota prevista en la Ley Impositiva vigente.
+Igual actitud podrá asumir respecto de las actividades mencionadas en el inciso h) del artículo 160 de este Código en tanto el contribuyente no desarrolle habitualmente estas actividades en la Provincia.
+En ambos supuestos los contribuyentes eximidos por la Dirección de la obligación de la inscripción no estarán sujetos a los montos mínimos que establezca la Ley Impositiva.”
