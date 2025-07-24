@@ -1,0 +1,2 @@
+Art. 26.- Del Producido de las Multas y otros Conceptos.
+Las multas que aplique la Dirección General de Deportes y Recreación de la Provincia de Salta, por infracción a las normas legales o reglamentarias relacionadas al deporte, así como las determinaciones que se realicen en concepto de accesorios, actualizaciones y otros valores correspondientes a las prescripciones de la ley serán ingresadas en las boletas o formularios de depósitos habilitados al efecto por la autoridad de aplicación.

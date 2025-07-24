@@ -1,0 +1,5 @@
+Art. 20.- Potestades de Control y Sanciones.
+Sin perjuicio de las potestades que le son propias al organismo provincial de fiscalización de las personas jurídicas la autoridad de aplicación de la Ley Nº 6710 ejercerá el control de las entidades o instituciones comprendidas en esta reglamentación, en materia de su competencia, recurriendo al auxilio de la fuerza pública en caso necesario.
+Las sanciones que podrían corresponderles a las entidades deportivas por el incumplimiento de las funciones asignadas en el artículo anterior o por otras transgresiones a la Ley Nº 6710 tendrán su origen en la legislación deportiva vigente al respecto, tanto en el orden provincial y/o nacional.
+Los agentes del Área Normatización, Fiscalización. Registro y Habilitación del órgano de aplicación, y los que éste designe mediante disposición interna fundada, tendrán acceso librea todas las manifestaciones deportivas de la Provincia a los efectos de cumplir con su función específica.
+A tales efectos se les proveerá un carnet habilitante de carácter personal e intransferible.

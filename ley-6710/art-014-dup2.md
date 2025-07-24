@@ -1,0 +1,2 @@
+Art. 14.- De las Resoluciones.
+Las resoluciones son las conclusiones legales y vinculantes que adopta el Consejo, disponiendo medidas relativas a su organización, funcionamiento, buen orden o a las decisiones correspondientes a su gestión y en general, a las disposiciones concernientes a su régimen interno o en cuestiones de su específica competencia; en especial lo relativo a verificar en forma fehaciente el destino y aplicación de los fondos otorgados en el marco de los artículos 39 y concordantes del presente decreto reglamentario.

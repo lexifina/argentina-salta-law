@@ -1,0 +1,4 @@
+Art. 18.- Organización y Funcionamiento del Registro de Entidades Deportivas.
+La Dirección General de Deportes y Recreación de la Provincia de Salta dispondrá las medidas para la organización y funcionamiento del Registro de Entidades Deportivas (R.E.D.) así como las normas que rijan los procedimientos relacionados a la ejecución y efectiva aplicación de las prescripciones contenidas en la Ley del Deporte Nº 6710.
+A tales efectos los Consejos Departamentales y/o Municipales llevarán un registro regional de entidades deportivas con cumplimiento de requisitos formales uniformes, siendo en todos los casos indispensable la acreditación de la personería jurídica.
+Una vez realizados dichos registros remitirán copias completas de los mismos al órgano de aplicación para su incorporación al R.E.D. y posterior habilitación para usufructuar beneficios de las normas deportivas vigentes y adquirir el status de Entidad con Personería Deportiva (E.P.D.)
