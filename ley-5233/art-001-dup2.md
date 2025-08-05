@@ -1,0 +1,1 @@
+Art. 1º - Carácter. La competencia atribuida a los tribunales provinciales es improrrogable. Sin perjuicio de lo dispuesto por el artículo 12, inciso 4° de la ley 48, exceptuase la competencia territorial que podrá ser prorrogada por conformidad de partes.
