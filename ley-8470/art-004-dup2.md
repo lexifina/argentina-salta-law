@@ -1,0 +1,1 @@
+ARTÍCULO 4º.- El presente decreto será refrendado por el señor Ministro de Gobierno, Derechos Humanos y Trabajo, por el señor Ministro de Economía y Servicios Públicos, y por la señora Secretaria General de la Gobernación.
