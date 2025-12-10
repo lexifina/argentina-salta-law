@@ -1,0 +1,1 @@
+Art. 15º: Las acciones disciplinarias prescriben a los dos años del hecho. El término se computa desde el día en que se cometió la falta o infracción. En caso de no poder ser determinado, se tomará como fecha de inicio del cómputo la de recepción de la denuncia por el Tribunal.

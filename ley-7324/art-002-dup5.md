@@ -1,0 +1,1 @@
+Art. 2º: Se citará al denunciante a fin de que ratifique, rectifique o desista de su presentación. Ratificada que fuera, se llamará a declarar en primer término al denunciado, quien podrá ser asistido por un letrado, aunque no podrá ser sustituido o representado por éste.

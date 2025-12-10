@@ -1,0 +1,1 @@
+Art. 9º: Aplicada una de las sanciones previstas por los inc. c) y d) del artículo 43 de la Ley 7324, el Tribunal deberá comunicarla al Centro Judicial de Mediación del Poder Judicial de Salta para su toma de razón.

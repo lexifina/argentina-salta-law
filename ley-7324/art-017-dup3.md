@@ -1,0 +1,1 @@
+Art. 17º: Todo expediente que se inicie debe ser registrado en el Libro de Registro que al efecto lleve el Tribunal de Disciplina, constando la correspondiente identificación (número, infracción, nombre y apellido del denunciante y denunciado y en su caso el resultado de la causa).

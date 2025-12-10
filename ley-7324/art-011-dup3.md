@@ -1,0 +1,1 @@
+Art. 11º: Todas las notificaciones se realizarán mediante cédula, de la que se dejará copia al interesado, constando la fecha y hora de su diligenciamiento. Deberán ser firmadas por algunos de los miembros del Tribunal, y la notificación de la celebración de audiencia, diligenciarse con una antelación mínima de tres (3) días de la fecha fijada.

@@ -1,0 +1,3 @@
+Art. 3º.- Con encuadre en lo previsto por los artículos 144, inc. 4), 131, 133 y concordantes de la Constitución Provincial y artículo 11 de la Ley Nº 7.190, propónese al Poder Legislativo la sanción del agregado que se sugiere para ser incorporado al texto de la ley que aquí se promulga, según se expresa a continuación:
+Se sugiere agregar como segundo párrafo del artículo 7º, el siguiente texto:
+“En ningún caso se generará derecho a honorarios cuando el proceso de mediación se haya frustrado en los términos del presente artículo, salvo que tal proceso se hubiere instado por acuerdo de partes.”

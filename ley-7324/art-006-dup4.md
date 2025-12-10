@@ -1,0 +1,1 @@
+Art. 6º: Presentado el descargo y/o merituada la prueba, el Tribunal dictará su Resolución en un término no mayor de veinte (20) días, debiendo fundar su decisión, notificándose a las partes por cédula.

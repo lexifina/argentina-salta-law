@@ -1,0 +1,6 @@
+Artículo 6º: Actas
+Las distintas actas se ajustarán a los modelos que apruebe la Autoridad de Aplicación, en las que se deberán individualizar a las personas que participaron, lugar, fecha, horario, duración de la audiencia y ser firmadas por las mismas.
+El expediente de Mediación se integrará con: 1) una carátula en la que se identificará a las partes, número de expediente y Mediador designado; 2) la Solicitud de Mediación y las Actas indicadas en el presente artículo; 3) Convenio de Confidencialidad; 4) Las constancias de notificaciones cursadas y copias de notas o certificados relativos a las partes; 5) De existir acuerdo, copia del mismo debidamente firmada por las partes; 6) Acta de resultado; 7) Copia de la Constancia de cumplimiento de la instancia de Mediación.
+El Expediente deberá ser registrado y numerado en un libro foliado, el que será habilitado por la Autoridad de Aplicación, consignando por orden de ingreso los datos de las partes y del Mediador que intervino, el tema a mediar, la duración de la Mediación, las causas de conclusión.
+Una vez concluido por cualquier causa el trámite de Mediación, el Mediador confeccionará el Acta de Resultado y suscribirá la Constancia de Mediación.
+El Mediador tiene a su cargo el archivo y custodia del expediente en el cual intervino, durante el plazo establecido por ley.

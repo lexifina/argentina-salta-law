@@ -1,0 +1,1 @@
+Art. 13º: Ningún expediente que se encuentre tramitando por ante el Tribunal de Disciplina, podrá ser prestado ni a las partes ni a tercero interesado, pudiendo bajo autorización de alguno de los miembros del Tribunal, ser fotocopiado.

@@ -1,0 +1,1 @@
+Art. 8º: Una vez firme la Sentencia, el Tribunal arbitrará los medios necesarios para que se haga efectiva la misma, comunicando a la Autoridad de Aplicación a los fines de su anotación en el Registro pertinente.

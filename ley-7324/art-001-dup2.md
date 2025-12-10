@@ -1,0 +1,3 @@
+Artículo 1º.- Con encuadre en lo previsto por los artículos 144, inc. 4), 131, 133 y concordantes de la Constitución Provincial, y 11 de la Ley Nº 7.190, obsérvase parcialmente el proyecto de ley sancionado por las Cámaras Legislativas, en sesión de fecha 2 de noviembre del corriente año, mediante el cual se aprueba la Ley de Mediación de la Provincia de Salta, ingresado a la Secretaría General de la Gobernación el 8 de noviembre de 2004, bajo Expediente Nº 90-15.254/04 Referente, según se expresa a continuación:
+En el artículo 1º segundo párrafo, última frase: vétase la expresión: “...verificados en el ámbito provincial como municipal”.
+En el artículo 50 vétase la frase: “...en el ámbito provincial y municipal”.
