@@ -1,0 +1,1 @@
+Art. 74 ter.- Será sancionado con arresto de hasta veinte (20) días o multa de hasta veinte (20) días el que dentro de un establecimiento de salud de gestión pública o privada, ejerza actos que violenten a un trabajador de la salud, sea o no profesional, siempre que la conducta no constituya delito. (Incorporado por art. 1 de la Ley Nº 8039/2017).

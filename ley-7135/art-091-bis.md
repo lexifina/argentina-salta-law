@@ -1,0 +1,1 @@
+Art. 91 bis.- Será sancionado con arresto de hasta veinte (20) días o multa de hasta cuarenta (40) días y comiso de lo secuestrado, los dueños, encargados o gerentes de cualquier establecimiento que venda u ofrezca en adopción animales, declarados de compañía por la autoridad administrativa, en vidrieras. (Artículo incorporado por el Art. 7º de la Ley Nº 8242/2021)

@@ -1,0 +1,1 @@
+Art. 3º.- Con las salvedades establecidas en el artículo 1º, en carácter de veto, promúlgase el resto del texto sancionado como Ley de la Provincia Nº 7.135, poniéndose a consideración de la Legislatura dichas observaciones y las modificaciones sugeridas en el artículo 2º del presente decreto.

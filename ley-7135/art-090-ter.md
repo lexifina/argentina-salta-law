@@ -1,0 +1,4 @@
+Art. 90 ter.- Será sancionado con arresto de hasta noventa (90) días o multa de hasta noventa (90) días, el que degrade los suelos mediante actividades de contaminación, quema sin autorización o prácticas agrícolas o pecuarias en forma contraria a las normas de aprovechamiento sostenible, manejo sostenible y de conservación dictadas por la autoridad administrativa. La sanción indicada en el párrafo anterior se incrementará al doble si se trata de un área declarada como de Uso Sustentable Voluntario. La sanción se elevará al triple si se trata de un área declarada como de Uso Sustentable Obligatorio. En todos los casos la sanción implicará para el contraventor la obligación accesoria de recomponer el suelo al estado anterior mediante técnicas de remediación y conservación in situ. (Incorporado por el Art. 10 de la Ley Nº 7914/2015).
+“Gral. Martín Miguel de Güemes
+Héroe de la Nación Argentina”
+Digesto Jurídico

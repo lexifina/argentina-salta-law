@@ -1,0 +1,1 @@
+Art. 74 bis.- Será sancionado con arresto de hasta veinte (20) días o multa de hasta veinte (20) días elquedentro de un establecimiento educativo de gestión pública o privada, ejerza actos que violenten a un trabajador de la educación, sea o no docente, siempre que la conducta no constituya delito. (Incorporado por art. 1 de la Ley Nº 8038/2017).

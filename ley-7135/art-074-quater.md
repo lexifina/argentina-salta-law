@@ -1,0 +1,1 @@
+Art. 74 quater.- Será sancionado con arresto de hasta veinte (20) días o multa de hasta veinte (20) días el que ejerciere actos de discriminación o violencia contra cualquier persona con motivo de alguna enfermedad contagiosa. (Incorporado por art. 1º de la Ley Nº 8270/2021).-
