@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- APROBAR el Proyecto de Reglamentación De Graduación De Multas por Infracciones al Régimen de Protección de Bosques Nativos de la Provincia de Salta de acuerdo con lo establecido en la Ley Provincial Nº 7.543 y su Decreto Reglamentario Nº 2.785 y demás normas concordantes, que como Anexo I forma parte integrante de la presente Resolución.

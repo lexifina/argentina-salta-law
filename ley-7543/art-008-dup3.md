@@ -1,0 +1,4 @@
+ARTÍCULO 8º: INFRACCIONES AL RÉGIMEN DE PROTECCIÓN DE BOSQUES NATIVOS.
+1.-Las infracciones que recaigan sobre las áreas categorizadas como zonas de bajo valor de conservación conforme OTBN vigente se graduarán teniendo como valor base 500 litros de nafta del mayor octanaje por cada hectárea de la superficie afectada.
+2.-Las infracciones que recaigan sobre las áreas categorizadas como zonas de mediano valor de conservación conforme OTBN vigente se graduarán teniendo como valor base 1.000 litros de nafta del mayor octanaje por cada hectárea de la superficie afectada.
+3.-Las infracciones que recaigan sobre áreas categorizadas como zonas de Muy Alto Valor de Conservación, áreas protegidas o de reserva, pública o privada o de amortiguamiento, se graduarán teniendo como valor base 2.000 litros de nafta del mayor octanaje por cada hectárea de la superficie afectada.

@@ -1,0 +1,1 @@
+Art. 6º - El presente decreto será refrendado por los señores Ministros de Desarrollo Económico, de Ambiente y Desarrollo Sustentable y de Finanzas y Obras Públicas y por el señor Secretario General de la Gobernación.

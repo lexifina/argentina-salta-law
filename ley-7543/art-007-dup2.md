@@ -1,0 +1,3 @@
+Art. 7º - Representatividad de los Ecosistemas. Umbral de Transformación de Cuenca: A los fines de la Ley Nº 7.543, del presente Decreto Reglamentario y normas complementarias, entiéndase por
+Umbral de Transformación de Cuenca, el valor máximo admisible de transformación de la vegetación natural mediante cambios de uso del suelo.
+La autoridad de Aplicación determinará mediante la norma técnica ambiental del artículo siguiente, el Umbral de Transformación de cada Cuenca Hidrográfica en función de las características ambientales e hidrológicas de cada una y la importancia estratégica de las mismas, definida de acuerdo a los servicios ambientales que brinda.

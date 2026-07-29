@@ -1,0 +1,6 @@
+Art. 17 - Prohibición de quema de residuos de desmontes: Será requisito indispensable para la aprobación de todo Plan de Aprovechamiento de Cambio de Uso del Suelo, que el mismo contenga un capítulo referido a la “Utilización racional de los residuos generados por el desmonte”, en el que se deberá consignar como mínimo, además de los requisitos establecidos por la Resolución Nº 536/2005 de la ex Secretaría de Medio Ambiente y Desarrollo Sustentable de la Provincia, una estimación del volumen generado en el desmonte; un listado de potenciales interesados en el material a los fines de ser notificados de la disponibilidad de materiales y un listado de los establecimientos educativos de la zona que potencialmente podrán utilizar dicho material como combustible. La correcta utilización de estos residuos será motivo de evaluación por parte de la Autoridad de Aplicación al momento de emitir el correspondiente Certificado de
+“Gral. Martín Miguel de Güemes
+Héroe de la Nación Argentina”
+Digesto Jurídico
+Aptitud Ambiental y Social.
+Para la quema de los residuos finales se deberá contar con un “Apto Igneo” otorgado por la Autoridad de Aplicación con la debida intervención del Organismo competente en la prevención y control de fuegos o incendios forestales.

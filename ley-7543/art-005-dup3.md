@@ -1,0 +1,1 @@
+Art. 5º - El Ministerio de Desarrollo Económico dictará las normas reglamentarias y complementarias necesarias para el adecuado funcionamiento del Consejo Asesor del Ordenamiento Territorial del Bosque Nativo.

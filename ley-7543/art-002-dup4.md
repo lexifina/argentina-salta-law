@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- ESTABLECER que el órgano técnico-jurídico competente de la presente Resolución, es la Dirección de Fiscalización y Control o la dependencia que en el futuro la reemplace, de acuerdo con lo establecido en el art. 247 del Decreto Nº 3.097/00.

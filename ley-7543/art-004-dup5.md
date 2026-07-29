@@ -1,0 +1,19 @@
+ARTÍCULO 4°: Constituyen infracciones al deber de protección de Bosques Nativos:
+a) Iniciar planes, proyectos, obras o actividades de aprovechamiento forestal, uso de suelo, desmontes o cambios de uso de suelo, trabajos de manejo silvopastoriles, apertura de picadas, urbanizaciones, obras de infraestructura y/o toda otra actividad que afecte una superficie de bosques nativos, sin contar con el Certificado de Aptitud Ambiental y Social y /o Declaración Jurada de Aptitud Ambiental, habilitantes, según el caso.
+b) Incurrir en falsedad, ocultación de datos o impactos no declarados en el trámite de obtención del Certificado de Aptitud Ambiental o durante la ejecución del proyecto aprobado por Autoridad Competente.
+c) Omitir informar la existencia de Comunidades Aborígenes, Comunidades Criollas y/o puesteros y en su caso la conformidad de estos de acuerdo al proyecto.
+“Gral. Martín Miguel de Güemes
+Héroe de la Nación Argentina”
+Digesto Jurídico
+d) Toda transgresión, alteración o modificación no autorizada y/o informada, según sea el caso, a la autoridad de aplicación en la ejecución de los Planes de Manejo Sostenible, de aprovechamiento de Cambio del Uso del Suelo y/o al Plan de Manejo y Conservación de Bosques Nativos aprobados y demás modalidades establecidas vía reglamentaria.
+e) La falta de presentación de las Certificaciones de avance de los permisos y planes aprobados por la autoridad de aplicación, en los términos establecidos por la reglamentación pertinente.
+f) No denunciar oportunamente las modificaciones substanciales respecto de los sujetos autorizados v.gr cambio de titularidad del inmueble; incorporación de condóminos; usufructuarios, arrendatarios; fallecimiento del titular, cambio de denominación social; desmembramiento o subdivisión de la matrícula; dictado de medidas de no innovar o indisponibilidad.
+g) El incumplimiento de las actividades comprometidas en Planes de Remediación, restauración y/o Compensación aprobadas por el área de Fiscalización y Control, como así también las medidas preventivas o precautorias determinadas.
+h) La quema de bosques, pastizales o praderas como métodos de recuperar tierras.
+i) La quema a cielo abierto de los residuos derivados de desmontes y/o aprovechamiento sostenible de bosques nativos sin contar con la autorización de la Autoridad de Aplicación prevista por los artículos 16 de la Ley Nº 7543 y 17 del Decreto 2785/2009.
+j) Provocar incendios por incumplimiento de las normas relativas a la quema controlada.
+k) El manejo irracional del suelo, las prácticas agrícolas en tierras no aptas y otras actividades destructivas de bosques nativos.
+l) La realización de urbanizaciones, obras públicas o de infraestructura, prospecciones u obras energéticas o de vías de transporte, la instalación de líneas de comunicación o de transporte de energía en las zonas comprendidas en la Categoría I y II del Ordenamiento Territorial de Boques Nativos de la Provincia de Salta, que requieran cambio de uso de suelo, sin contar con el Certificado de Aptitud Ambiental y Social previsto en los artículos 48 y 49 de la Ley 7.070. m) Pronunciarse con falsedad total o parcial en las declaraciones, informes o auditorías ambientales.
+n) Omitir las declaraciones, informes o denuncias cuya obligatoriedad suja de las Leyes vigentes, sus reglamentos, las resoluciones y/o disposiciones dictadas por la Autoridad de Aplicación.
+o) Toda falsedad u omisión de los datos contenidos en los Planes de Manejo Sostenible de Bosques Nativos; en los Planes de Aprovechamiento de Cambio de Uso del Suelo; Informes Auditados y otros instrumentos similares, susceptibles de causar un daño o colocar en peligro al ambiente. Las personas humanas o jurídicas que hayan suscripto los mencionados estudios serán solidariamente responsables junto a los titulares de la autorización.
+p) Toda otra acción u omisión que importe el incumplimiento del Régimen de Protección de Bosques Nativos.

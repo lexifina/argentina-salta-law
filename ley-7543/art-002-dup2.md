@@ -1,0 +1,9 @@
+Art. 2º- Contenido del Soporte Cartográfico: El soporte cartográfico a que se refiere el artículo anterior, está elaborado a una escala de uno en doscientos cincuenta mil (1:250.000) mediante la ponderación integrada de los criterios e indicadores de sustentabilidad ambiental de los artículos 3º y 7º de la Ley Nº 7.543.
+Forman parte integrante del soporte cartográfico del Anexo I, el Mapa donde se indican con valor de referencia las tres Categorías de Conservación y el Documento Técnico de apoyo al Plan de Ordenamiento Territorial de las Áreas Boscosas de la Provincia de Salta (POT), que contiene las diferentes capas de información utilizadas para la ponderación de los distintos criterios de sustentabilidad ambiental contenidos en la ley. Dicha información se encuentra organizada en un Sistema de Información Geográfico (SIG) que administrará la Autoridad de Aplicación y será utilizado como referencia obligada para la elaboración de los Planes a que se refieren los artículos 10º, 12º y 15º del presente Decreto Reglamentario; de los Estudios de Impacto Ambiental (EIA) a que se refiere el artículo 23º de la Ley Nº 7.543 y 20º del presente Decreto y para el otorgamiento del correspondiente Certificado de Aptitud Ambiental y Social que debe emitir la Autoridad de Aplicación para la realización de las actividades permitidas por la Ley dentro de las distintas
+Categorías de Conservación.
+Dichas capas de información deberán actualizarse periódicamente y serán insumo necesario para la
+“Gral. Martín Miguel de Güemes
+Héroe de la Nación Argentina”
+Digesto Jurídico
+revisión y actualización a que se refiere el artículo siguiente.
+Para la elaboración del SIG se utilizó el Sistema de Coordenadas Planas de Proyección Transverse Mercator, considerando Fajas 3 y 4 con Datum WGS84 para la extensión de la provincia.

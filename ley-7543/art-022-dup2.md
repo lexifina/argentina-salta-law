@@ -1,0 +1,8 @@
+Art. 22 - Régimen de adecuación al manejo Ambiental Sostenible.
+Las autorizaciones de cambio de uso del suelo otorgadas con anterioridad al presente régimen y cuyas propiedades se encuentran alcanzadas por distintas Categorías de Conservación, se realizarán en el área de menor valor de conservación y siguiendo los criterios del presente artículo.
+Las autorizaciones de desmontes pendientes de ejecución y que fueron otorgadas con anterioridad a la entrada en vigencia de la Ley Nacional Nº 26.331, ubicadas en la Categoría II (Amarillo) podrán ejecutarse bajo supervisión y control de la Autoridad de Aplicación y de acuerdo al siguiente esquema:
+a) Propiedades de 1 a 100 ha, se podrá ejecutar el desmonte autorizado hasta cubrir el 100% de la propiedad.
+b) Propiedades de 101 a 500 ha, se podrá ejecutar el desmonte autorizado hasta cubrir el 50% de la propiedad.
+c) Propiedades de más de 500 ha, se podrá ejecutar el desmonte autorizado hasta cubrir el 25% de la propiedad o completar 2.500 ha, lo que suceda antes.
+En el último caso, el titular deberá comprometer una superficie igual a la desmontada como área de conservación e incluida en la Categoría de Conservación I (Rojo).
+Para el análisis de los tres supuestos precedentes se tendrá en cuenta el tamaño de las propiedades de acuerdo al catastro vigente a la fecha de sanción de la Ley Nº 7.543. Las autorizaciones de desmontes que se ubiquen en la zona correspondiente a la Categoría III (Verde) o de aprovechamientos forestales que correspondan a las Categorías II (Amarillo) y III (Verde), podrán realizarse, rigiendo para ellas la prorroga del plazo establecido en el último párrafo del artículo 30º de la Ley.

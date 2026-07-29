@@ -1,0 +1,1 @@
+Art. 23 - Discordancias: En caso de discordancia entre la zonificación cartográfica del artículo 1º del presente y el Catastro Inmobiliario de la Dirección General de Inmuebles se estará a lo establecido por el sistema de registro de la propiedad inmueble.

@@ -1,0 +1,1 @@
+Artículo 1º - Créase el Consejo Asesor del Ordenamiento Territorial del Bosque Nativo de la Provincia de Salta, el que estará integrado según se establece en el artículo siguiente y funcionará en el ámbito del Ministerio de Desarrollo Económico.

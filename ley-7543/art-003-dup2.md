@@ -1,0 +1,1 @@
+Art. 3º- Actualización: Conforme lo establecido por el artículo 6º, tercer párrafo del Decreto Nº 91/2009, reglamentario de la Ley Nacional Nº 26.331, el Ordenamiento Territorial de los Bosques Nativos de la Provincia deberá revisarse y actualizarse cada cinco (5) años.
