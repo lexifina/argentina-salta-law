@@ -1,0 +1,11 @@
+{
+  "path": "ar-a",
+  "code": "AR-A",
+  "name": "Salta",
+  "level": "province",
+  "parent": "ar",
+  "repo": "https://github.com/lexifina/argentina-salta-law",
+  "build": "built: constitution, codes and laws (1496 norms, 1496 versions) from https://www.diputadosalta.gob.ar/",
+  "language": "es",
+  "sources": 1
+}
